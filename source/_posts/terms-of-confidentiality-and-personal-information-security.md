@@ -1,7 +1,7 @@
 ---
 title: Terms of Confidentiality and Personal Information Security
-date: 2024-08-19 16:25:38
-updated: 2024-08-21 12:38:26
+date: 2024-08-20T09:34:59.449Z
+updated: 2024-08-21T09:34:59.449Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/826e213581d156558e6f234936866c0f136b901791e5cc9453b472a1e6024dd2.jpeg
@@ -45,6 +45,10 @@ Our customers' right to privacy is a main priority for Epubor team and because o
 
 If you have any questions or concerns about our use of your Personal Information, then [please open a ticket](https://share.hsforms.com/1XMDdDw%5FCReqsb5-qCwX6fgc1yk8).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ### What information do we collect? What do we use it for?
 
 When you leave a message on our website by commenting, your full name and email address will be required. This information is used to help us answer visitor's question and send a notification email to the commentor.
@@ -53,16 +57,25 @@ When you place an order on our website, you will be jumped to third-party online
 
 For the rest, we will collect your full name, email address, the product your purchased, and the country information. The information is used to complete the transaction and help us provide better support and services to you.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### How do the 3rd party payment websites protect customer's credit card information?
 
 Epubor uses secure server hosted by RegNow, 2checkout and Paypal, they encrypt all the customer's personal information before it is sent to us, your credit card information is only used for online transition.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2checkout and Paypal
 
 Founded in 2006, 2checkout(Avangate) is headquartered in Amsterdam, The Netherlands. We are the agile eCommerce solutions provider trusted by Software and SaaS companies to grow their eCommerce business worldwide through any channel, any model.
 
 PayPal is the faster, safer way to pay and get paid online, via a mobile device and in store. The service gives people simpler ways to send money without sharing financial information, and with the flexibility to pay using their account balances, bank accounts, credit cards or promotional financing.
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Cookie policy
 
 In order to better understand what services are valuable to our customers, we use "cookies". A cookie is a small text file that a Website writes to your hard drive. Cookies work as your identification card and may record passwords, preferences and purchases. Cookies let the web page server know that you have returned to this site. Cookies also can determine other information, such as the daily visitors to our website and the pages of the site most frequently visited. Cookies are unique and can only be read by the server that assigns them. They cannot be executed as code or deliver viruses.
@@ -91,6 +104,9 @@ You can prevent the setting of cookies by adjusting the settings on your browser
 * CONNECT WITH US
 * [![facebook](http://www.epubor.com/images/fb.png)](https://www.facebook.com/eBookConverter)[![twitter](http://www.epubor.com/images/tw.png)](https://twitter.com/eBook%5FConverter)[![linkedin](http://www.epubor.com/images/Linkedin-Logo.png)](https://www.linkedin.com/company/epubor/)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 * Subscribe
 * Submit
 
@@ -106,6 +122,9 @@ Copyright © 2011-2024 www.epubor.com. All rights reserved.
 
 ![mcafee badge](http://www.epubor.com/images/mcafee-secure.png)![norton badge](http://www.epubor.com/images/norton-icon.png)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"

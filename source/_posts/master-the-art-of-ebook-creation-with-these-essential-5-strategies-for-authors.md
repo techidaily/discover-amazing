@@ -1,7 +1,7 @@
 ---
 title: Master the Art of eBook Creation with These Essential 5 Strategies for Authors
-date: 2024-08-20 10:45:21
-updated: 2024-08-21 11:17:33
+date: 2024-08-20T09:34:59.392Z
+updated: 2024-08-21T09:34:59.392Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/e8d04162a361e101c6d5fe7cceb85fa9aae79c5e50584f8b8db01d521f6c1c1d.jpg
@@ -35,6 +35,9 @@ People who aim at creating a fiction or novel will need to spend much more time 
 
 Start with the topic you wrote down to think about the different aspects or different degrees or others of it. A lot of information about the core topic needs to be written down. Then draw an outline to help make your clue more clear and easier for you to write the ebook later. 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 2\. Write Your eBook
 
 ![write book](http://www.epubor.com/images/uppic/write-book.jpg)Writing a book even a short book takes time. The most important thing is to persevere. Don't give up easily if you get stuck in the way of writing. For writing, you could write with Microsoft Word (most people are familiar with) or other word processing softwares. When you’re sitting there typing the words on your keyboard, just focus on writing the actual text. Type what in your mind out word by word. Don't worry about the font, margin or any other stylistic element of the book yet. Why You need to focus on writing the book instead of being disturbed by those things now and then. If you have to do some formatting job at this time, just keep it as simple as possible. You may like the feeling of writing straight through. Use whatever writing techniques you need to complete your book well. 
@@ -47,24 +50,44 @@ If you want to directly create ibooks, you can choose iBooks Author to do the jo
 
 If you want to directly create kindle books, you can take this article as a reference. [How to create your own kindle ebook step by step.](http://www.williamking.me/2012/02/08/create-your-own-kindle-ebook-step-by-step-with-pictures/) 
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3\. Review and Revise
 
 When your book is finished, leave it alone for a couple of days or so, and then come back to it with a critical eye. Like writing, revising also takes time. You can make a plan to review and revise a certain number of words or chapters each day. Check the order of the chapters and sections in the book first. Sometimes you'll find that some pieces seem to make more sense in a different spot than where you've originally placed them. After you revise it and are satisfied with the order and structure of the whole book, read the chapters and sections one by one to edit and revise. You can add some details in certain sections if it's needed. Beautify your words and language properly.
 
 After you finish the revising job yourself, you can ask your friends, families and co-workers to proofread your eBook. Ask for honest input and accept their practical suggestions that can help to improve your book. Correct any mistake and make some improvement. 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Step 4\. Add a Proper Cover 
 
 ![ebook covers](http://www.epubor.com/images/uppic/ebook-covers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Like physical books, a very improtant part for an eBook is its cover. Even though it's not a paper cover which you can touch. It's what potential readers and buyers notice first. A good book cover will draw the readers's attention more easily. And a nice book cover will make readers feel delight and comfortable. You can consider to spring for a professionally-designed cover, or do it alone by yourself if you think you can make something that looks good and will attract others. And be sure to get permission before you want to use any copyrighted images. Here[killercovers](http://killercovers.com/#ebook) and [99designs](http://99designs.com/) are recommended to you if you want to find a website to search for a professional cover. Of course there are many methods in which you can get a good cover. So you can make your own choice.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 5\. Converting the Manuscript to eBook Formats
 
 Here I recommend [Calibre](http://calibre-ebook.com/download) to you. It allows you to convert a number of different text formats to a number of different ebook formats. For example ou can use it to convert the word manuscript to ebook formats like epub, pdf, mobi, azw3 and so on. It's very easy and convenient. Click the "Add" icon to add your ebook to it, and click the "Convert" icon to choose the output format you want to have the conversion done. When your ebook is completed, just preview it on an e-reader, tablet, smart phone or simply e-reading software. If you’re aiming for Amazon, the [Kindle Previewer](http://www.amazon.com/gp/feature.html/?docId=1000765261) is a cool tool. Then for the EPUB files, a wonderful tool for previewing them is [Sigil](https://code.google.com/p/sigil/). And it can help you fix things and solve certain troublesome problems. Finally you can get your own ebook.
 
 ![author](https://www.epubor.com/images/uppic/1-22-2013 12-03-06 AM.png)
 
+<!-- affiliate ads begin -->
+<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Ada Wang](https://plus.google.com/+AdaWang/posts) works for Epubor and writes articles for a collection of blogs such as ebookconverter.blogspot.com.
 
 SHARING IS GREAT!

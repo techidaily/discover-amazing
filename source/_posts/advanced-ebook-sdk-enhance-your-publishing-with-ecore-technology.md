@@ -1,7 +1,7 @@
 ---
 title: Advanced eBook SDK - Enhance Your Publishing with eCore Technology
-date: 2024-08-20 17:33:52
-updated: 2024-08-21 10:15:21
+date: 2024-08-20T09:34:59.310Z
+updated: 2024-08-21T09:34:59.310Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/b1557e3d9700a9810b8b9bbec88362c53ba5a3f98f5f309c7652fc768db4746d.jpg
@@ -189,3 +189,12 @@ Epubor helps you convert, transfer, edit and read books anywhere on any devices,
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

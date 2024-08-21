@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Tutorial for Transferring Book Files Directly to Kindle
-date: 2024-08-20 21:59:28
-updated: 2024-08-21 12:39:34
+date: 2024-08-20T09:34:59.034Z
+updated: 2024-08-21T09:34:59.034Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/192a8b490dda7b2810c72f377a9e089461747eddc1922b17a723c29b678176ef.jpg
@@ -62,6 +62,12 @@ Click the device or app you want, and you will see the Kindle personal email add
 
 ![Kindle-personal email address](https://www.epubor.com/images/uppic/kindle-personal-email-address.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step2\. Add Your Email to "Send to Kindle" Approved Email list. 
 
 To prevent spam, Kindle Personal Documents Service only accept email which approved by yourself, so you need to add your personal email address.
@@ -70,8 +76,14 @@ Go to Amazon [Manage Your Content and Devices](https://www.amazon.com/mycd). Fro
 
 ![Add email to Kindle](http://www.epubor.com/images/uppic/add-email-to-kindle.png)
 
+<!-- affiliate ads begin -->
+<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Notice:** If you want to save your personal ebooks and documents to Kindle account, don't forget to enable archive, just simply click "Edit Archive Settings".
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Step3\. Compose an Email and Attached Your Books or Documents 
 
 1\. Log in your approved email account, compose a new email. 
@@ -90,6 +102,9 @@ If you use Calibre to manage your books, you can also email your books and docum
 
 ![sharing books by email](http://www.epubor.com/images/uppic/sharing-books-by-email.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Next time, when you want to email a book or document to Kindle directly from Calibre, you just need to right click the title and find Connect/share >> Email to _xxx@kindle.com_. Then the title will be delivery to your Kindle device or app. 
 
 ####  Why can't i send EPUB to Kindle email? 
@@ -102,6 +117,9 @@ Another tips, based on my own tests, sending ePub to Kindle for web is more conv
 
 ![author](http://www.epubor.com/images/uppic/jonny.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 [Jonny Greenwood](https://plus.google.com/u/0/+JonnyGreenwood999) joined Epubor since 2011, loves everything about eBooks and eReaders. He seeks the methods to read eBooks more freely and wants to share all he has got with you.
 
 SHARING IS GREAT!

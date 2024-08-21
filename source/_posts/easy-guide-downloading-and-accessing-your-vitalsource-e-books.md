@@ -1,7 +1,7 @@
 ---
 title: "Easy Guide: Downloading and Accessing Your VitalSource E-Books"
-date: 2024-08-20 19:52:26
-updated: 2024-08-21 11:30:36
+date: 2024-08-20T09:34:59.336Z
+updated: 2024-08-21T09:34:59.336Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/6be5b234be2302864f9331a3a3d7aaacb0018bce1f2511014ae677fbeed4c8da.jpg
@@ -42,6 +42,9 @@ VitalSource Bookshelf allows users to print the eBooks but it has print page lim
 
 Choose the range for your print and click on _Continue_ button to print this book. Now you can print 30 pages at a time, but if you want to print this whole book, you need to repeat this whole process which is really annoying and time-consuming if your book contains thousands of pages. That's why I strongly recommend you use the following method to print VitalSource eBooks.  
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Easiest Way to Print VitalSource eBooks 
 
 Nowadays, time is gold and many people even value time more than money. Thus, the following method I share with you guys can greatly save your time. In this part, I will share the easiest way to print the entire VitalSource eBooks with [Epubor VitalSource Downloader](https://tools.techidaily.com/epubor/products/) which is a smart tool that can download your VitalSouce vbk files to pdf or epub with only 1 click. With Epubor VitalSource Downloader, printing VitalSource eBooks is just a peice of cake.
@@ -60,6 +63,10 @@ Updated 2/18/2019: Epubor Vitalsource Downloader is not available for downloadin
 
 ![VitalSource bookshelf](https://www.epubor.com/images/uppic/vitalsource-downloader-interface.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 **Step3**: Download VitalSource eBooks to PDF/EPUB. Click the book you want to print, and the book will be downloaded automatically.
 
 ![downloading vitalsource ebooks](https://www.epubor.com/images/uppic/Download-vbk-file.png)
@@ -68,6 +75,9 @@ When the downloading is finished, it will pop up a new message "Download file su
 
 ![download succeeded](http://www.epubor.com/images/uppic/download-file-succeeded-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Click on "OK" button, it will pop up the folder which stored the downloaded file. 
 
 **Step 4**: Print VitalSource eBooks. Since there are two forms (epub/pdf) etextbooks sold in VitalSource, the books you downloaded via Epubor VitalSource Downloader may be in epub or PDF format according to its original formats. If the downloaded book is in PDF format, you can just print it directly. If the book you downloaded is in EPUB format, you need to convert epub to pdf with [Epubor eBook Converter](https://tools.techidaily.com/epubor/ebook-converter/) at first and then print it as following instructions.
@@ -76,10 +86,16 @@ Open the PDF file with GoogleChrome(or other PDF supported reader app) and click
 
 ![click on print button](http://www.epubor.com/images/uppic/click-on-print-button.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 The print settings page will pop up and you can choose the printer, the pages you want to print, copies and so on. 
 
 ![print vitalsource ebooks](http://www.epubor.com/images/uppic/print-vitalsource-ebook.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As you have downloaded VitalSource eBooks to PDF, there is no print limitation. You can print the whole book with only one click. It is greatly save your time. 
 
 After the comparison of these two methods, I highly recommend our readers to use the second method. It is easy and time-saving. What's more, it even can download your VitalSource VBK ebooks to PDF/EPUB so that you can read them any PDF or epub supported device.
@@ -98,6 +114,9 @@ Related reading
 
 ![author](http://www.epubor.com/images/uppic/iris.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<!-- affiliate ads end -->
 [Iris Yan](https://www.facebook.com/iris.yan.16718) has been a passionate member of Epubor since 2017\. Her mission is to enhance your ebook reading experience by sharing insightful tips and tricks. Join her on a journey towards reading excellence today!
 
 SHARING IS GREAT!
