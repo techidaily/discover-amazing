@@ -1,7 +1,7 @@
 ---
 title: Is AV1 Codec Compatible with HandBrake Encoder Software?
-date: 2024-09-01 17:48:49
-updated: 2024-09-02 12:49:12
+date: 2024-09-01T17:09:07.272Z
+updated: 2024-09-02T17:09:07.272Z
 categories:
   - winxdvd
 thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2ee82b6185002beb469144e3.jpg
@@ -37,6 +37,9 @@ Updated on February 28, 2024
 
 When a DVD owner converts a disc to a digital format, he may want to keep all the content of the DVD if possible. MKV is the format that will contain all the video, audio, subtitle tracks, chapters, and menus of a DVD without quality loss. And MKV can provide better compatibility than some other formats like ISO image or DVD VIDEO\_TS folder. But you may don't want to transcode a DVD to MKV and lose some video quality. You may just want to extract the DVD video to MKV format, untouched. In this post, we will show you the right way to rip DVD to MKV without re-encoding.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Easily Rip DVDs to MKV without Quality Loss 
 
 [WinX DVD Ripper Platinum](https://tools.techidaily.com/winxdvd/products/) \- easily rip DVD to MKV, ISO image, MPG, and Video\_TS folder in **1:1 quality**. It's able to remove region codes, CSS, Sony ARccOS, Disney X-Project, and other **copy protections** on the DVD and extract the MKV video from DVDs with **all subtitles**, menus, video, audio, and chapters without re-encoding. Convert a DVD to MKV in **5 minutes** only!   
@@ -44,6 +47,12 @@ Note: You can also rip copy-protected DVDs to MP4, MOV, AVI, WMV, 3GP, FLV, and 
 
 [![](https://www.winxdvd.com/resource/../seoimg/win.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [![](https://www.winxdvd.com/resource/../seoimg/mac.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [Free Download](https://tools.techidaily.com/winxdvd/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<!-- affiliate ads end -->
 ## 2024 Best Ways to Freely Rip DVDs to MKV on Windows 10/11 & Mac
 
 | Pros                       | Cons                                                                                                                 | More Info                                                                             |                                                          |
@@ -54,10 +63,16 @@ Note: You can also rip copy-protected DVDs to MP4, MOV, AVI, WMV, 3GP, FLV, and 
 | **VLC Media Player**       | Easily rip unprotected DVDs to MKV on Windows and Mac.                                                               | It doesn't support protected DVDs and the options to adjust the settings are limited. | [Read More](https://tools.techidaily.com/winxdvd/products/)       |
 | **Movavi Video Converter** | Rip unprotected DVDs to MKV and various other formats with fast speed.                                               | It can't rip protected DVDs to MKV.                                                   | [Read More](https://tools.techidaily.com/winxdvd/products/)    |
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1\. Reasons for Ripping DVD to MKV
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a11.png)1\. Ripping DVD will Remove DVD Copy Protections** 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Similar to Blu-ray, DVD disc is also equipped with a variety of protections to prevent DVD content from illegal use. The most popular encryption techs include CSS encryption, Sony ARccOS encryption, RCE Region protection, Disney X-project DRM, region code etc. DVD rippers can bypass DVD copy protections and deliver a DRM-free file. But sometimes you may encounter errors while working with [DVD ripping freeware](https://tools.techidaily.com/winxdvd/products/) like MakeMKV, HandBrake and Freemake Video Converter. 
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a10.png)2\. DVD to MKV Backup can Reserves All DVD Content** 
@@ -66,8 +81,14 @@ If you have ever [encoded DVD movies into MP4](https://tools.techidaily.com/winx
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a7.png)3\. MKV Container Is as Universal as MP4 with High Quality** 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Since MKV supports any type of video/audio tracks and subtitles inside, and is quite efficient for storage and streaming, it's widely used on video transmitting. Usually, common DVD rippers can help rip a 4-8 GB DVD movie to a digital file in hundreds of MB, but you will get much quality loss. Only some seasoned DVD to MKV backup tools balance well on video file size and DVD ripping speed.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2\. How to Convert DVDs to MKV Losslessly with WinX DVD Ripper
 
 [**WinX DVD Ripper Platinum**](https://tools.techidaily.com/winxdvd/products/) is the best DVD to MKV converter for Mac. Check more features below.
@@ -125,12 +146,19 @@ Now let's download MakeMKV and learn how to convert DVD to MKV with MakeMKV.
 
 ![Rip DVD to MKV with MakeMKV](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/makemkv-select-titles-audios-subtitles.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 **Step 3.** Specify an output folder to store the resulting MKV file.
 
 **Step 4.** Hit Make MKV button to begin ripping DVD to MKV. 
 
 While ripping DVD with MakeMKV, you may encounter errors like DVD failed to open, backup option greyed out for DVD, A/V out of sync, crashes, missing beginning, etc. This is because MakeMKV doesn't support some copy protections. In this case, you can give WinX DVD Ripper a try. Among all the DVD rippers, WinX DVD Ripper is the strongest one to decrypt DVD. 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4\. How to Rip DVD to MKV with HandBrake
 
 [**HandBrake**](https://handbrake.fr/) is one of the most puplar choices to free convert DVD to MKV and MP4 on Windows and Mac. It supports DVDs, Blu-rays, ISO images, Video\_TS folder, and various video files. You can use Handbrake to rip DVDs to MKV in HEVC, H.264, MPEG-4, and VP8/9\. It provides stable ripping performance and there are a lot of settings that help you adjust the output. There are also hardware encoder for MKV outputs that can deliver fast ripping speed. 
@@ -195,6 +223,9 @@ Now let's learn how to rip DVDs to MKV usingi Movavi Video Converter?
 
 ![rip DVDs to MKV Movavi](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/movavi-700.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## In Conclusion
 
 DVD to MKV converters play a valuable role in the digital transformation of physical media. These converters provide users with a convenient and efficient way to convert DVD content into the widely supported MKV format, preserving both video and audio quality. The flexibility offered by MKV, including support for multiple audio and subtitle tracks, makes it a popular choice for users looking to create digital backups or enjoy their DVD content on various devices. Let's select the best fit DVD to MKV converter and start converting DVD to MKV right now!
@@ -203,9 +234,18 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
 
 * [6 Ways to Convert DVD to MP4 on Mac for Free](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 * [Top 10 Free DVD Players for Windows 10/11](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 * [Best Preset Settings for HandBrake DVD to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 * [\[2024\] How to Free Convert DVD Video\_TS to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<!-- affiliate ads end -->
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
@@ -220,3 +260,53 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-dynamic-duels-revisited-best-hand-to-hand-games-ranked/"><u>[New] 2024 Approved  Dynamic Duels Revisited  Best Hand-to-Hand Games Ranked</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-the-insiders-guide-to-facebook-live-with-360-degrees/"><u>[New] 2024 Approved  The Insider's Guide to Facebook Live with 360 Degrees</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-audio-ambition-realized-cutting-edge-recording-methods-for-minecraft-players-for-2024/"><u>[New] Audio Ambition Realized  Cutting-Edge Recording Methods for Minecraft Players for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-a-comprehensive-walkthrough-setting-up-your-first-wirecast-livestream-to-youtube/"><u>[New] In 2024, A Comprehensive Walkthrough  Setting Up Your First WireCast Livestream to Youtube</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-quickcopy-consultants-thoughts/"><u>[New] In 2024, QuickCopy Consultants' Thoughts</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-revive-vanished-watch-video-icon-for-2024/"><u>[Updated] Revive Vanished Watch Video Icon for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-transformative-power-of-instavids-planning-your-marketing-journey-for-2024/"><u>[Updated] Transformative Power of InstaVids  Planning Your Marketing Journey for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unveiling-the-vr-future-latest-trends/"><u>[Updated] Unveiling the VR Future  Latest Trends</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-crafting-sound-saturated-instagram-visuals/"><u>2024 Approved  Crafting Sound-Saturated Instagram Visuals</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-meizu-21-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Meizu 21 PC | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/maciphoneandroid/"><u>使用Mac、iPhone或Android簡單轉檔影像文件：高效無界的影片下載解決方案</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/macx-video-converter-proam/"><u>完全無欠のウイルスフリー動画変換 - MacX Video Converter Proの優秀なレビューと評判についam</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/macx800/"><u>限定キャンペーン：MacX動画変換プロの特別企画！800個分無料提供</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/macx-mediatransheicjpg/"><u>新時代の画像処理手段解禁！ MacX MediaTransによる迅速HEICからJPGへの変換技術と使い勝手向上</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-crash-code-0xc0000142-in-win11win7/"><u>Addressing Crash Code 0XC0000142 in WIN11/Win7</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/alternatives-a-powerdvd-pour-mac-comment-entrer-en-ligne/"><u>Alternatives À PowerDVD Pour Mac : Comment Entrer en Ligne?</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/authenticate-and-enjoy-unlimited-usage-with-macx-dvd-ripper-pro-download-a-legal-key-now/"><u>Authenticate and Enjoy Unlimited Usage with MacX DVD Ripper Pro - Download a Legal Key Now!</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/behind-the-scenes-a-comprehensive-review-of-lgs-digital-cinema-31mu97-b-monitor/"><u>Behind the Scenes  A Comprehensive Review of LG's Digital Cinema 31MU97-B Monitor</u></a></li>
+<li><a href="https://win-dash.techidaily.com/boost-your-gaming-experience-with-steelseries-engine-windows-10-edition/"><u>Boost Your Gaming Experience with SteelSeries Engine Windows 10 Edition</u></a></li>
+<li><a href="https://games-able.techidaily.com/champions-choice-the-best-6-varied-games/"><u>Champion's Choice: The Best 6 Varied Games</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/convert-and-compact-dvds-into-mobile-ready-videos-for-apple-devices/"><u>Convert & Compact DVDs Into Mobile-Ready Videos for Apple Devices</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-the-official-logitech-g29-control-wheel-software-for-windows-11-pcs/"><u>Download the Official Logitech G29 Control Wheel Software for Windows 11 PCs</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/easy-videoproc-windows-windowsvideoproc/"><u>Easy VideoProc Windows導入マニュアル - Windows版VideoProcを簡単にダウンロードして設置する方法</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/effizientes-iphone-bildmanagement-umgehend-ladenlos-entfernen-dank-ios-15-features/"><u>Effizientes iPhone-Bildmanagement – Umgehend Ladenlos Entfernen Dank IOS 15 Features</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/extraction-of-dvd-audio-on-macos-free-ripper-tool/"><u>Extraction of DVD Audio on macOS - Free Ripper Tool</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-resolve-non-charging-problems-on-your-iphone-a-comprehensive-guide/"><u>How To Resolve Non-Charging Problems on Your iPhone: A Comprehensive Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-nubia-z50-ultra-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Nubia Z50 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-bridging-platforms-effortlessly-add-linktree-to-tiktok-bios/"><u>In 2024, Bridging Platforms  Effortlessly Add Linktree to TikTok Bios</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-in-search-of-greatness-top-15-timeless-stop-motion-films/"><u>In 2024, In Search of Greatness  Top 15 Timeless Stop Motion Films</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/in-depth-analysis-of-samsung-galaxy-s24-ultra-leading-with-advanced-ai-features/"><u>In-Depth Analysis of Samsung Galaxy S24 Ultra: Leading with Advanced AI Features</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/in-depth-analysis-of-the-self-balancing-smartdesk-levitate-a-fussy-setup-with-decent-performance/"><u>In-Depth Analysis of the Self-Balancing SmartDesk Levitate: A Fussy Setup with Decent Performance</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/in-depth-analysis-the-unrivaled-excellence-of-the-google-pixel-8-pro-your-ultimate-guide/"><u>In-Depth Analysis: The Unrivaled Excellence of the Google Pixel 8 Pro - Your Ultimate Guide</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/manual-call-points-should-be-accessible-located-near-exits-and-allow-anyone-to-raise-an-alarm-manually/"><u>Manual Call Points Should Be Accessible, Located Near Exits, and Allow Anyone to Raise an Alarm Manually.</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/oneplus-buds/"><u>OnePlus Buds</u></a></li>
+<li><a href="https://win11.techidaily.com/resolving-network-not-available-in-windows-os/"><u>Resolving Network Not Available in Windows OS</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/seamless-transition-how-to-swiftly-move-from-iphone-to-android/"><u>Seamless Transition: How to Swiftly Move From iPhone to Android</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/section-3c-qandass/"><u>Section 3C: Q&As.s</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-converting-your-dvds-into-iso-files-using-macos/"><u>Step-by-Step Guide: Converting Your DVDs Into ISO Files Using macOS</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/the-cutting-edge-finding-the-top-5-titling-professionals-online-for-2024/"><u>The Cutting Edge  Finding the Top 5 Titling Professionals Online for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-5-methods-for-streaming-films-from-your-apple-tv-using-macos-ios-and-ipados-devices/"><u>Top 5 Methods for Streaming Films From Your Apple TV Using macOS, iOS & iPadOS Devices</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transferring-images-from-iphone-to-mac-top-10-easy-methods/"><u>Transferring Images From iPhone to Mac: Top 10 Easy Methods</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ugreen-powerroam-1200-evaluation-embrace-stylish-off-grid-living-with-top-rated-solar-generator/"><u>Ugreen PowerRoam 1200 Evaluation: Embrace Stylish Off-Grid Living with Top Rated Solar Generator</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unintentional-attraction-my-nuphy-gem80-experience-a-comprehensive-200-mechanical-keyboard-review/"><u>Unintentional Attraction: My Nuphy Gem80 Experience - A Comprehensive $200 Mechanical Keyboard Review</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-techniques-for-reducing-digital-audio-file-sizes/"><u>Updated 2024 Approved Techniques for Reducing Digital Audio File Sizes</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/18/"><u>デジアートの誕生18周年スペシャルプロモーション</u></a></li>
+</ul></div>
