@@ -1,14 +1,26 @@
 ---
 title: "Genaue Übersicht: Supported Video Formats in WhatsApp - Aktuelle Informationen (2018)"
-date: 2024-08-30T10:42:10.650Z
-updated: 2024-08-31T10:42:10.650Z
+date: 2024-09-05T10:58:13.603Z
+updated: 2024-09-06T10:58:13.603Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/d7bfa61b324ffaea9cbfc11e938036f2476668f1b77c7e6a5441829794f7ed33.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Genaue Übersicht: Supported Video Formats in WhatsApp - Aktuelle Informationen (2018)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Whatsapp unterstützte Videoformate auf einen Blick 2018
 
 Whatsapp, als eine der beliebtesten Apps zum Senden und Empfangen von Videos, Fotos und Dokumenten, hat täglich eine Milliarde von aktiven Benutzern. Die massive Popularität führt auch zu gelegentlichen Ärgernissen, weil nicht alle Benutzer Whatsapp Videoformate kennen. Sie können in Whatsapp Warnmeldung geraten wie "Dieses Video konnte nicht gesendet werden. Bitte wähle ein anderes Video aus.", "Dieses Video kann nicht verwendet werden." und mehr. 
@@ -17,6 +29,18 @@ Zum Beispiel, wenn ich ein mit meinem iPhone 8 Plus aufgenommenen 1 Minute HEVC 
 
 
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Welche Videodatei wird von Whatsapp unterstützt?
 
 Whatsapp akzeptiert nicht alle Videos. Es gibt Einschränkungen. Unten sind die besten Videoformate für Whatsapp 2018, zusammen mit der passenden Dateigröße. Bevor Sie eine Videodatei über Whatsapp auf Ihrem iPhone, Android, Windows oder Mac senden, teilen oder abspielen, überprüfen Sie, ob das Video passt. 
@@ -49,22 +73,28 @@ Virengeprüft
 
 [![](https://www.macxdvd.com/tutorial-de/howto_image/free_down_de_2.png)](https://tools.techidaily.com/macxdvd/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Virengeprüft
 
 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Tutorial: Wie kann man Videos für Whatsapp komprimieren/konvertieren?
 
 Downloaden Sie zuerst den Whatsapp Video Converter für Windows (10) oder Mac (inkl. macOS High Sierra):  
 [![](https://www.macxdvd.com/tutorial-de/../seoimage/download-icon-step.png)Windows-Version kostenlos downloaden](https://tools.techidaily.com/macxdvd/products/)  
 [![](https://www.macxdvd.com/tutorial-de/../seoimage/download-icon-step.png)Mac-Version kostenlos downloaden](https://tools.techidaily.com/macxdvd/products/) 
-
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Schritt 1:** Starten Sie den Converter und klicken Sie auf den Button "+Video", um Videos zu laden, die nicht von Whatsapp unterstützt werden.
 
 **Schritt 2:** Danach wird ein Fenster erscheinen. Wählen Sie ein Ausgabeformat für Whatsapp aus. Hier empfehlen wir Ihnen, Videos in das beste Whatsapp Videoformat zu konvertieren: MP4 (H.264+AAC).
@@ -72,7 +102,10 @@ Downloaden Sie zuerst den Whatsapp Video Converter für Windows (10) oder Mac (i
 ![Whatsapp Video Format](https://www.macxdvd.com/tutorial-de/article-image/instagram-videoformat-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Schritt 3:** Um die 16MB Anforderung zu erfüllen oder um längere Videos zu senden, müssen Sie [Videos komprimieren](https://tools.techidaily.com/macxdvd/products/) für Whatsapp.  
 **\*** Das Programm erlaubt Ihnen, die Videoparameter anzupassen, wie z.B. die Auflösung von 4K zu 1080p skalieren, um die Größe kleiner zu machen.  
@@ -89,27 +122,30 @@ Nachdem Sie die Videos, die nicht von Whatsapp unterstützt werden, in akzeptier
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/video-converterru.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### So einfach Videos in Whatsapp Videoformate konvertieren
 
  MacX Video Converter Pro kann beliebige 4K UHD, HD und SD Videos in MP4, MKV, HEVC, MOV, FLV und 370+ Formate für Whatsapp konvertieren. Es wird auch Whatsapp Videogröße um 40%-70% kleiner machen, um die 16MB Anforderung zu befriedigen. 
 
 [![](https://www.macxdvd.com/tutorial-de/howto_image/winx-de.png)](https://tools.techidaily.com/macxdvd/products/) [![](https://www.macxdvd.com/tutorial-de/howto_image/macx-de.png)](https://tools.techidaily.com/macxdvd/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Verwandte Tipps & Tricks
 
 ![](https://www.macxdvd.com/tutorial-de/howto_image/youtube1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Bestes YouTube Videoformat](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/tutorial-de/howto_image/youtube2.jpg) 
@@ -122,17 +158,10 @@ Nachdem Sie die Videos, die nicht von Whatsapp unterstützt werden, in akzeptier
 
 ![](https://www.macxdvd.com/tutorial-de/howto_image/youtube4.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 [Instagram Video downloaden](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[YouTube Musik kostenlos downloaden](https://tools.techidaily.com/macxdvd/products/)** 
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Wie kann man YouTube Musik kostenlos downloaden und hören
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[Handbrake Videos konvertieren](https://tools.techidaily.com/macxdvd/products/)** 
@@ -142,12 +171,27 @@ So wandeln Sie YouTube-Video in MP3-Format um
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[Die besten YouTube Downloader für Mac](https://tools.techidaily.com/macxdvd/products/)** 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Top 5 YouTube Downloader für Mac im Test
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[YouTube to MP4 Converter](https://tools.techidaily.com/macxdvd/products/)** 
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Wie kann man YouTube in MP4 downloaden und umwandeln
 
 

@@ -1,7 +1,7 @@
 ---
 title: "Ugreen PowerRoam 1200 Evaluation: Embrace Stylish Off-Grid Living with Top Rated Solar Generator"
-date: 2024-08-30T10:41:13.746Z
-updated: 2024-08-31T10:41:13.746Z
+date: 2024-09-05T10:58:12.658Z
+updated: 2024-09-06T10:58:12.658Z
 tags:
   - product-reviews
 categories:
@@ -9,6 +9,12 @@ categories:
 thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042ad27894aff917614decf98a8.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Ugreen PowerRoam 1200 Evaluation: Embrace Stylish Off-Grid Living with Top Rated Solar Generator
 
 ### Quick Links
@@ -33,6 +39,12 @@ thumbnail: https://thmb.techidaily.com/cca2262c2e353a017641457450ed87877a82d042a
 
 ![UGREEN PowerRoam 1200 Portable Power Station image](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/ugreen-powerroam-1200-product-tag.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
 
 #####  Ugreen PowerRoam 1200
@@ -97,9 +109,6 @@ Expand
 
 ![UGREEN Power Roam 1200 Solar with deployed kickstand](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/ugreen-power-roam-1200-solar-kickstand-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Mark LoProto / How-to Geek
 
  I have two gripes about the PowerRoam 1200, and they both relate to the design. First off, the handle, while a nice touch for portability, prevents stacking units. If you’re working with limited space, stacking is an option you’d likely want to have. It’s not a major inconvenience, though, especially since the power station isn’t expandable.
@@ -109,7 +118,10 @@ Mark LoProto / How-to Geek
  Because of the layout, that means you could have all manner of wires jutting from the power station at all angles. It can get a little messy, which would have been mitigated by reserving ports to the front and only one side.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Fast-Charging Keeps You Powered
 
@@ -117,9 +129,6 @@ Mark LoProto / How-to Geek
 
  When plugged into the wall, the total input averaged around 236W and took 44 minutes for the power station to reach 100% battery. The display keeps you abreast of total input and how long it will take to charge. Its estimate was fairly accurate. In fact, it overestimated and averaged about 50 to 55 minutes.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  Solar is a Decent, Albeit Slower Alternative
 
  Unfortunately, I didn’t have the same experience with the 200W solar panel, which typically sells separately or as part of a higher-priced bundle. Whereas plugging into an outlet produced near-expected input, the solar panel underperformed. Even at the height of a cloudless mid-summer day in the desert, with the built-in smart alignment feature telling me the panels were properly positioned, the PowerRoam was only receiving about 112W of the advertised 200W. At that rate, from 40% battery, the station estimated 5.6 hours until a full charge.
@@ -128,10 +137,28 @@ Mark LoProto / How-to Geek
 
  Overall performance really highlights the best applications for the PowerRoam 1200, especially if you have a hierarchy of what you can’t live without during a power outage. You may need to prioritize which devices remain powered, but the solar panels should keep you well-stocked with electricity.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Good for Emergencies, Great for Outdoor Living
 
 ![UGREEN Power Roam 1200 Solar Plugged In](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/ugreen-power-roam-1200-solar-plugged-in.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Mark LoProto / How-to Geek
 
  I can see the PowerRoam 1200 coming in handy during a power outage, but it’s not where it will shine. During an in-home test, I plugged my fridge, air fryer, television, and Xbox Series S into the station. The refrigerator, a sizable side-by-side, drew only 4W, though the station estimated a 66-hour battery life (equating to 256Wh). When I added the air fryer, it ran at a near-consistent 1,200W, dropping the battery life to about 44 hours. Separately, the TV and Xbox drew about 79W together.
@@ -143,8 +170,16 @@ Mark LoProto / How-to Geek
  When you think of what you’d have to power when you’re off the grid or camping, it’s devices like hotplates, small burners, lanterns, and, if you’re marginally roughing it, your smartphone or laptop. None of those are going to draw a lot of power from the battery.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ##  Many Features Surprisingly Reserved for the Companion App
 
@@ -169,13 +204,19 @@ Close
 ![UGREEN PowerRoam 1200 Portable Power Station image](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/08/ugreen-powerroam-1200-product-tag.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 #####  Ugreen PowerRoam 1200
 
 9/ 10 

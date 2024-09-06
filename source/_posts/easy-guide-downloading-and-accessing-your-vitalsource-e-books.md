@@ -1,12 +1,18 @@
 ---
 title: "Easy Guide: Downloading and Accessing Your VitalSource E-Books"
-date: 2024-08-25T19:49:30.755Z
-updated: 2024-08-26T19:49:30.755Z
+date: 2024-09-05T10:58:15.093Z
+updated: 2024-09-06T10:58:15.093Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/6be5b234be2302864f9331a3a3d7aaacb0018bce1f2511014ae677fbeed4c8da.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Easy Guide: Downloading and Accessing Your VitalSource E-Books
 
 ## How to Print VitalSource eBooks
@@ -40,10 +46,19 @@ VitalSource Bookshelf allows users to print the eBooks but it has print page lim
 
 ![print page limitations](http://www.epubor.com/images/uppic/print-restriction.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Choose the range for your print and click on _Continue_ button to print this book. Now you can print 30 pages at a time, but if you want to print this whole book, you need to repeat this whole process which is really annoying and time-consuming if your book contains thousands of pages. That's why I strongly recommend you use the following method to print VitalSource eBooks.  
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Easiest Way to Print VitalSource eBooks 
 
@@ -59,25 +74,42 @@ Updated 2/18/2019: Epubor Vitalsource Downloader is not available for downloadin
 
 ![Epubor VitalSource Downloader](https://www.epubor.com/images/uppic/vitalsource-downloader-login.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Fill in your VitalSource login information, you will go to VitalSource Bookshelf and see all your purchased books.
 
 ![VitalSource bookshelf](https://www.epubor.com/images/uppic/vitalsource-downloader-interface.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step3**: Download VitalSource eBooks to PDF/EPUB. Click the book you want to print, and the book will be downloaded automatically.
 
 ![downloading vitalsource ebooks](https://www.epubor.com/images/uppic/Download-vbk-file.png)
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 When the downloading is finished, it will pop up a new message "Download file succeeded!".
 
 ![download succeeded](http://www.epubor.com/images/uppic/download-file-succeeded-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Click on "OK" button, it will pop up the folder which stored the downloaded file. 
 
 **Step 4**: Print VitalSource eBooks. Since there are two forms (epub/pdf) etextbooks sold in VitalSource, the books you downloaded via Epubor VitalSource Downloader may be in epub or PDF format according to its original formats. If the downloaded book is in PDF format, you can just print it directly. If the book you downloaded is in EPUB format, you need to convert epub to pdf with [Epubor eBook Converter](https://tools.techidaily.com/epubor/ebook-converter/) at first and then print it as following instructions.
@@ -86,15 +118,15 @@ Open the PDF file with GoogleChrome(or other PDF supported reader app) and click
 
 ![click on print button](http://www.epubor.com/images/uppic/click-on-print-button.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 The print settings page will pop up and you can choose the printer, the pages you want to print, copies and so on. 
 
 ![print vitalsource ebooks](http://www.epubor.com/images/uppic/print-vitalsource-ebook.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 As you have downloaded VitalSource eBooks to PDF, there is no print limitation. You can print the whole book with only one click. It is greatly save your time. 
 
@@ -114,9 +146,6 @@ Related reading
 
 ![author](http://www.epubor.com/images/uppic/iris.png)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
-<!-- affiliate ads end -->
 [Iris Yan](https://www.facebook.com/iris.yan.16718) has been a passionate member of Epubor since 2017\. Her mission is to enhance your ebook reading experience by sharing insightful tips and tricks. Join her on a journey towards reading excellence today!
 
 SHARING IS GREAT!

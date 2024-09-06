@@ -1,7 +1,7 @@
 ---
 title: Top 10 Highest-Grossing Films Winning an Academy Award
-date: 2024-08-30T10:42:11.762Z
-updated: 2024-08-31T10:42:11.762Z
+date: 2024-09-05T10:58:13.629Z
+updated: 2024-09-06T10:58:13.629Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/e3f7f8209eab3a8810779d3b9fd5af99ac53d2f641a80f57ad3f83729c4706c2.jpg
@@ -37,6 +37,18 @@ Movies always play a big part in our digital life, some of which let us burst in
 
 ![2023 Academy winner](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/2018-oscar-prediction.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Table of Contents
 
 * [List of Top 10 Best Academy Award Movies](https://tools.techidaily.com/macxdvd/products/)
@@ -44,6 +56,24 @@ Movies always play a big part in our digital life, some of which let us burst in
 
 ![update icon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon1.png)
 
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Oscars 2023 - Who Is the Biggest Winner This Year?
 
 Who won at the [95th Academy Awards 2023](https://tools.techidaily.com/macxdvd/products/)? Austin Butler or Brendan Fraser for the Best Picture? Cate Blanchett or Michelle Yeoh for the Best Actress? But Academy always likes to make a surprise, Guillermo del Toro's Pinocchio wins the Best Animated Feature Film unexpectedly. Beyond that, other prizes are also compelling. Here list 2023 Oscar winners partly. 
@@ -55,21 +85,18 @@ Who won at the [95th Academy Awards 2023](https://tools.techidaily.com/macxdvd/p
 5. Best Actro: waiting for the announcement
 6. Best Actress: waiting for the announcement
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## List of Top 10 Best Academy Award Movies
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### No.1: Green Book (2019)
 
 ![2020 Oscars Movie - Green Book](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/2019-oscars-green-book.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 2022 Oscars Movie - Green Book
 
 It's a big surprise that Green Book wins the Best Picture in 2024 91st Academy Award. Besides that, it also pockets 2 other awards, including Original Screenplay and Actor in A Supporting Role. What this movie talk about? It's a story of a working-class Italian-American bouncer becomes the driver of an African-American classical pianist on a tour of venues through the 1960s American South. Confronted with racism, danger-as well as unexpected humanity and humor-they are forced to set aside differences to survive and thrive on the journey of a lifetime.
@@ -79,7 +106,10 @@ It's a big surprise that Green Book wins the Best Picture in 2024 91st Academy A
 ![2018 Oscar Awarded Movies - Shape of Water](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/shape-of-water.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 2018 Oscar Awarded Movies - Shape of Water
 
@@ -90,7 +120,10 @@ The Shape of Water led the 2020 Academy awards with Best Picture and Best Direct
 ![best oscar movies 2017](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/lalaland.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 best oscar movies 2017
 
@@ -100,6 +133,12 @@ Damien Chazelle's "La La Land" failed to edge out Arrival, Moonlight, Manchester
 
 ![best oscar movies - titanic](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/titanic-L.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 best oscar movies - titanic
 
 Ever since its first appearance in 1997, _Titanic_ became a monster hit and continued to be one of the highest-grossing movies of all time. This academy award flick seems to create a magic among audiences as boys can gloss right over the romance and focus on the action while girls can concentrate on the swoon-worthy love story. Undeniably, this Cameron-directed epic blockbuster is worth our NO.1 among the numerous Oscar awarded movies. (Tips: for those who'd like to download the top Oscar movies online to Mac, iPhone, iPad, iPod for watching, do not forget to convert the video so that your iOS device could play ([check how to download movies to iPhone](https://tools.techidaily.com/macxdvd/products/)).
@@ -107,8 +146,10 @@ Ever since its first appearance in 1997, _Titanic_ became a monster hit and cont
 ![note icon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon0.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Note: You can take advantages of a top Oscar movie downloader such as MacX Video Converter Pro and [free download](https://tools.techidaily.com/macxdvd/products/) it to download Oscar films online and then play thee Oscar winning movies on iPhone iPad and Android on the go. 
 
@@ -125,34 +166,51 @@ best oscar movies - forrest gump
 ![best oscar movies - jaws](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/jaws.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 best oscar movies - jaws
 
 Since noted Zionist director Steven Spielberg released Jaws in 1975, this giant vengeful shark had summer moviegoers screaming in their seats. Years after the premiere, this Oscar winning movie is still considered as the best thrilling film that will last forever. Thanks to our young, ambitious Steven Spielberg, we can therefore witness a thrilling and surprisingly funny piece of entertainment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### No.7: Life of Pi (2012)
 
 ![best oscar movies - life of pi](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/lifeofpi.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 best oscar movies - life of pi
 
 A young man who survives a disaster at sea is hurtled into an epic journey of adventure and discovery. There's no denying that Life of Pi is a dazzlingly beautiful and enchanting film that's just as likely to make you think as it is to make you shed a tear or cheer in triumph. It's no surprise Ang Lee has been named the winner of the Best Director award at the 2013 Academy Awards. By the way, for those who got this flick on DVD and want to rip Life of Pi DVD for playback on mobile devices, you can head over to this Life of Pi DVD backup tutorial.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### NO. 8: Slumdog Millionaire (2008)
 
 ![best socar movies - slumdog millionaire](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/slumdogmillionaire.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 best socar movies - slumdog millionaire
 
 Slumdog Millionaire sweeps eight Oscars at the 81st Academy Awards including Best Adapted Screenplay, Cinematography, Sound Mixing, Film Editing, Original Score, Original Song, Direction and Motion Picture. Its achievement is undeniable since this academy award winning movie presents us a top gripping tale of heroism, struggle, true love, and unfailing friendship set in the rough-and-tumble world of modern India to millions of moviegoers for the first time.
@@ -161,9 +219,6 @@ Slumdog Millionaire sweeps eight Oscars at the 81st Academy Awards including Bes
 
 **Tips 2:** You can watch the downloaded/converted top Oscar movies on iPhone iPad by best oscar winning movies from Mac to iPhone sync with [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/), which offers an all-in-one solution to [transfer video from Mac to iPhone](https://tools.techidaily.com/macxdvd/products/) iPad iPod in a flash. 
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### No. 9: Crouching Tiger, Hidden Dragon (2000)
 
 ![best oscar movies _ crouching tiger, hidden dragon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/crouchingtiger.jpg) 
@@ -172,9 +227,6 @@ best oscar movies \_ crouching tiger, hidden dragon
 
 If you want to know more about the Chinese culture and kungfu, Crouching Tiger, Hidden Dragon is absolutely the solid choice. This Ang Lee-directed 2000 film won him the Oscar for Best Foreign Language Film and three other Academy Awards. In many ways, Crouching Tiger Hidden Dragon is pure Wu Xia, containing formulaic elements such as honourable warriors, swordswomen, powerfulswords, and often magic and mythical beasts. Quite simply, Crouching Tiger has everything. It is beautiful, breathtaking and deeply moving.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### No. 10: Finding Nemo (2003)
 
 ![best oscar movies - finding nemo](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/nemo.jpg) 
@@ -183,42 +235,84 @@ best oscar movies - finding nemo
 
 Filled with mystery, adventure, affection, friendship, this 3D computer animated film demonstrates its great appealing to moviegoers of almost all ages. When indulging yourself in this [3D movie](https://tools.techidaily.com/macxdvd/products/), you can see every visual detail that amazes in the gorgeous underwater world. So to speak, it is one of the most successful flicks produced by Pixar Animation Studios and Disney. Without any question, it is definitely the best Oscar movie in the range of animation. 
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### No.11: Saving Private Ryan (1998)
 
 ![best oscar movies](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/saving-private-ryan-tom-hanks.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 best oscar movies - Saving Private Ryan
 
 When talking about the top Oscar movies in 1999, perhaps two films must be mentioned: one is Shakespeare In Love and the other one is Saving Private Ryan. Though Saving Private Ryan finally lost to the former as the winner of the Best Picture award, its powerful, touching, dramatic, brutal, and moving tale of the survival of eight men in the most famous battle of WWII still make it win five Academy Awards including Best Director, Best Film Editing (Michael Kahn), Best Cinematography, Best Sound, and Best Sound Effects Editing and stand as the greatest war film of all time that should be seen by everyone.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### No.12: Avatar (2009)
 
 ![Top horror film - The Eyes of My Mother](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/avatar.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Top horror film - The Eyes of My Mother
 
 When referring to Cameron directed movies, Titanic is surely his masterpiece. But for sci-fi movie followers, Avatar is the way to go. The movie's scale is undeniably impressive and also deserves to be one of the top ten best Oscar winning movies of all time.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### No.13: The Lord of the Rings: The Return of the King (2003)
 
 ![best oscar movies - lord of the rings](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/lord-of-the-rings-return-king-poster.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 best oscar movies - lord of the rings
 
 2003 was a banner year for big, big visual effects movie - that is The Lord of the Rings: The Return of the King. I must say that this academy award movie is the best flick offering an amazingly powerful visual experience, all attributing to Peter Jackson who has crafted one of the finest written pieces of our era into the quintessential epic. This had to win as it's one of the best and most epic movies ever made.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## More Top Searched Oscar Winning Movies Of All Times
 
 Apart from the top 10 best Acadamy Award movies, there are some other Oscar winning pictures that also have been searched over and over again by fans. Here the top searched Oscar movies are listed.
@@ -264,10 +358,28 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Top Best Movies to Rent And Solution to Copy Top DVD Rentals](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Top Steven Spielberg Movies List that Stands the Test of Time](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
@@ -285,12 +397,10 @@ Related Articles
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [Best Hollywood Comedy Movies List Recently & of All Time](https://tools.techidaily.com/macxdvd/products/)
 
@@ -298,14 +408,13 @@ Related Articles
 
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Hot Products
 
@@ -313,6 +422,12 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Tips and Tricks
 
 * [DVD Topics >>](https://tools.techidaily.com/macxdvd/products/)

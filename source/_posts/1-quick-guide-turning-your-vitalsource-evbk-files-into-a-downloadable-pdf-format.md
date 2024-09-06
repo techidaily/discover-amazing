@@ -1,7 +1,7 @@
 ---
 title: "1. Quick Guide: Turning Your VitalSource eVBK Files Into a Downloadable PDF Format"
-date: 2024-08-25T19:48:29.947Z
-updated: 2024-08-26T19:48:29.947Z
+date: 2024-09-05T10:58:14.125Z
+updated: 2024-09-06T10:58:14.125Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf0188fbbf3a215fd35680a08.JPG
@@ -19,6 +19,18 @@ Posted by [Iris Yan](https://www.facebook.com/iris.yan.16718) on 12/19/2018 10:1
 
 ![follow](http://www.epubor.com/images/follow.png)
 
+<!-- affiliate ads begin -->
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Every now and then, students and researchers purchase textbooks from Vitalsource Bookshelf. Most of the books downloaded from VitalSource Bookshelf are in VBK format and protected by DRM. People only can open these books with VitalSource Bookshelf APP which is really annoying. Recently I have received many readers emails which inquiry if there is any way to convert VBK to PDF. I've tested some methods posted on these famous ebook related forums and find the easiest way to convert VBK to PDF. This method will cost you no penny!
 
 **Update:** Since there are many readers want to convert the VBK to pdf in whole, we launch a new software--**[Epubor VitalSource Downloader](https://tools.techidaily.com/epubor/products/)** to download the VitalSource eTextbooks to PDF/EPUB. 
@@ -47,14 +59,38 @@ Open the book you want to print, then choose "Print" at the dropdown list of "Fi
 
 ![print vbk to pdf](http://www.epubor.com/images/uppic/print-vbk-to-pdf-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 It will pop up a new window asking you to fill in the range of the pages you want to print. In this window, you will see that if there is print limitations. If yes, we can not bypass the limitations for now. Ignore this restriction and just click on "continue" to go to the next step. 
 
 ![choose the page range](http://www.epubor.com/images/uppic/choose-the-page-range.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The print window will pop up. Now you can fill in the copies, pages you want to print. At the buttom, you will see PDF options, click on "PDF" and select ”Save as PDF" at the dropdown list.
 
 ![save vbk as pdf](http://www.epubor.com/images/uppic/save-as-pdf.png)
 
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Fill in the "Title", "Author", and choose the storages place for the converted PDF file. Then click on " Save" to generate the PDF file.
 
 ![conver vbk to pdf on mac](http://www.epubor.com/images/uppic/convert-vbk-to-pdf-2.png)
@@ -64,7 +100,22 @@ Now you get your VBK file converted to PDF. Since there may be print limitations
 ![save vbk as pdf](https://www.epubor.com/images/pdf-splitter-merger.htmlscreen1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Convert VBK to PDF on Windows
 
@@ -93,21 +144,40 @@ Now you will see the print settings window. Choose "doPDF 9" as the virtual prin
 ![select printer for vitalsource book](http://www.epubor.com/images/uppic/select-printer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<span id="1983573">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 After you have clicked on "Print", the doPDF will save this file as PDF. You can change the file name and storage at your computer by clicking on "Browse". Then click on "OK". The printer will begin to print this file and give you a PDF file.
 
 ![print vbk to pdf on windows](http://www.epubor.com/images/uppic/print-vbk-to-pdf-on-windows.png)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 As there may be print limitation, you have to print the pages one by one. After all pages have been printed, you can use Epubor PDF & Merger & Splitter to merge all pdf files to one book. 
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Convert VBK to PDF with Epubor VitalSource Downloader
 
@@ -139,9 +209,6 @@ You just need to fill in your VitalSource account information to sign in your Vi
 
 ![Vitalsource downloader login](https://www.epubor.com/images/uppic/vitalsource-downloader-interface.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 When you log in, you will see all books you purchased from VitalSource website. If you found that not all purchased books are displayed in this library, close the software and restart it again please.
 
 #### Step 3: Download VitalSource Bookself to PDF 
@@ -152,6 +219,18 @@ When the downloading is started, the processing bar will show you the process. P
 
 ![download vbk file](http://www.epubor.com/images/uppic/Download-vbk-file.png)
 
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 When the downloading is finished, it will pop up the output location which stores the downloaded PDF or EPUB books. You can also click on the blue folder icon, it will show you the output path.
 
 ![Downloaded pdf](http://www.epubor.com/images/uppic/downloaded-pdf.png)Instead of vbk file, you will get the PDF or EPUB file downloaded to your computer according to the book original formats. If the book you purchased is Page-Fidelity Textbook (PDF), the book you downloaded will be in PDF. If the book you purchased is Reflowable Textbook (EPUB), the book you downloaded will be in epub. In this situation, you need to convert the epub to PDF with [Epubor eBook converter](https://tools.techidaily.com/epubor/ebook-converter/). 
@@ -173,10 +252,6 @@ Suggested reading:
 
 ![author](http://www.epubor.com/images/uppic/iris.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 [Iris Yan](https://www.facebook.com/iris.yan.16718) has been a passionate member of Epubor since 2017\. Her mission is to enhance your ebook reading experience by sharing insightful tips and tricks. Join her on a journey towards reading excellence today!
 
 SHARING IS GREAT!

@@ -1,7 +1,7 @@
 ---
 title: "Section 3C: Q&As.s"
-date: 2024-08-30T10:41:20.575Z
-updated: 2024-08-31T10:41:20.575Z
+date: 2024-09-05T10:58:12.785Z
+updated: 2024-09-06T10:58:12.785Z
 tags:
   - product-reviews
 categories:
@@ -21,6 +21,12 @@ thumbnail: https://thmb.techidaily.com/56e1f89334f10f1cb05f14f5231043c0f4d7f09cc
 
 ![Origin PC EON16-X Laptop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/eon16-x-top-open.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
 #####  Origin PC EON16-X Laptop
@@ -105,13 +111,16 @@ The Origin PC EON16-X boasts premier gaming power with an understated and custom
 
 Expand 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Games, Benchmarks, and Overall Performance** 
 
 ![Origin PC EON16-X Laptop open on a table top running Diablo IV](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-08-02-10-32-28.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  On paper, since the built-in display has a reasonable 2,560 x 1,600 resolution, the EON16-X should be able to maintain very high frame rates with high visual fidelity in even the most demanding games. In practice, that definitely proved to be the case, especially when paired with the display's super-fast 240 Hz refresh rate and [NVIDIA G-SYNC](https://www.nvidia.com/en-us/geforce/products/g-sync-monitors/) support.
@@ -124,6 +133,18 @@ Bill Loguidice / How-To Geek
 
 ![Origin PC EON16-X Laptop open a table top running Fortnite](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-49-18.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  One of my favorite games to play is _Fortnite_, and I would never consider using Wi-Fi over wired Ethernet for a competitive online shooter like this, except in this case. There was not a single connectivity issue with Wi-Fi and performance was as smooth as I've ever experienced. While there were the usual frame rate drops until shortly after landing, once in-game, the frame rate remained a solid 60fps. This was when paired with very high settings, and it felt like a fresh experience even after previously logging over 1,100 hours of playtime. Of course, if you want to run the game with a frame rate in the hundreds, that's always an option, but you'll sacrifice some of the higher-end visuals that really shine on this display.
@@ -133,7 +154,10 @@ Bill Loguidice / How-To Geek
 ![Origin PC EON16-X Laptop open on a table top with a close up of the keyboard and trackpak](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-41-51.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
@@ -154,15 +178,15 @@ Bill Loguidice / How-To Geek
  Switching to Office mode, running from battery, 53% screen brightness, and leaving the keyboard and light bar lighting on, I ran the [UL Procyon](https://benchmarks.ul.com/procyon/battery-life-benchmark) benchmark and its Office Productivity One-Hour Battery Consumption test. It gave a performance score of 18,400, noting a 33% drop in battery life over the first hour of use. This translates to roughly three to four hours of maximum battery life, even with minimal screen brightness and no GPU usage. This falls in line with Origin PC's own estimates of three to six hours under normal usage and one and a half to two hours under heavy loads, such as gaming. In any case, you'll probably want to be close to an outlet even when you're not gaming.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## **Design and Hardware: Basic Good Looks with Power** 
 
 ![Origin PC EON16-X Laptop open on a table top next to its AC adapter](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-25-03.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  The EON16-X sports a conservative design and traditional all-black styling. This is no thin and light laptop, but you wouldn't necessarily suspect it's a gaming powerhouse either.
@@ -182,7 +206,10 @@ Bill Loguidice / How-To Geek
 ![Origin PC EON16-X Laptop open on a table top running MythForce](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-08-02-10-36-19.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
@@ -190,12 +217,21 @@ Bill Loguidice / How-To Geek
 
  There's not much Origin PC adds to the basic Windows 11 Home operating system installation, so there are no real worries about bloatware. The most useful inclusion is the aforementioned Origin Control Center, which lets you monitor and modify general, performance, lighting, battery, display, and system settings. It's not as robust as some of the offerings from other companies, but I appreciated that the user interface for things like adjusting the keyboard and light bar lighting was straightforward and not overwhelming.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Input and Output: Ports for Every Need and Few Other Frills** 
 
 ![Rear of Origin PC EON16-X Laptop open on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-29-08.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
@@ -203,16 +239,18 @@ Bill Loguidice / How-To Geek
 
 ![Right side of open Origin PC EON16-X Laptop on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-29-41.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  I was not particularly impressed by the quality of the built-in speakers. The default sound profile sounds good at about 60% volume, but beyond that level I noted some muddiness. There's a little bit of bass, which is nice, but not a great deal of overall presence or noticeable surround effects. In short, these speakers will do in a pinch, but you're better off using external wired or Bluetooth speakers or headphones.
 
 ![Left side of open Origin PC EON16-X Laptop on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-28-27.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  The built-in microphone is serviceable and did a good job of picking up my voice, but also recorded some background noise. Similarly, the full HD webcam, which, in a nice touch, has a physical switch to block the camera when needed, does a good job with keeping focus, but is otherwise unremarkable in terms of image quality or handling challenging lighting conditions.
@@ -225,15 +263,18 @@ A sample image from the full HD webcam.
 
  There's no Windows Hello or fingerprint security validation, so you're limited to entering a passcode from the keyboard. This is yet another example of how this is designed as a relatively no-frills laptop primarily dedicated to delivering top-notch gaming performance.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## **Should You Buy the Origin PC EON16-X Laptop?** 
 
  There's no question that Origin PC has delivered an ultimate gaming, and performance-oriented laptop (with a price to match) in the [EON16-X](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2004606/https://www.originpc.com/gaming/laptops/eon16-x/). As expected, battery life is not one of the EON16-X's strong suits, making it more of a transportable workstation than a truly mobile companion. However, if you're a dedicated gamer and general power user, it would be difficult to find a better performer, especially with such a big screen size in such a relatively understated, and customizable, package.
 
 ![Origin PC EON16-X Laptop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/eon16-x-top-open.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
 #####  Origin PC EON16-X Laptop

@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Transforming Your PDF Documents Into iBook Textbooks at No Cost"
-date: 2024-08-25T19:48:51.941Z
-updated: 2024-08-26T19:48:51.941Z
+date: 2024-09-05T10:58:14.451Z
+updated: 2024-09-06T10:58:14.451Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/97473d93769b74152c0b0b04df270598f5aded17925dea70fd12d869a1bbc744.jpg
@@ -19,6 +19,12 @@ Posted by [Jonny Greenwood](https://plus.google.com/u/0/+JonnyGreenwood999) on 1
 
 ![follow](http://www.epubor.com/images/follow.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 How to get free ibooks for iPad? This instruction will teach you how to **convert free PDF files to iBooks on mac** with free Calibre in detail. Although iBooks now supports pdf, it doesn't match the reading experience of an epub on iPad. As we know, ePub has only recently become much more widely used. This method works for PDF files that are images of pages, not only actual texts of the book.
 
 ### Download and install Calibre
@@ -27,9 +33,6 @@ You can convert digital literature materials such as PDF, TXT, Word, Mobi etc in
 
 [Calibre Free Download](http://calibre-ebook.com/download)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ### Load PDF files into Calibre
 
 Run it and Click the "Add books" button in the top-left corner of the window to select a PDF file that you want to convert to an .epub file. Then Click “open” icon and it will import PDF file into Calibre successfully. Or drag a PDF file to the main Calibre interface.
@@ -37,7 +40,22 @@ Run it and Click the "Add books" button in the top-left corner of the window to 
 ![Load PDF files into Calibre](http://www.epubor.com/images/uppic/Load-PDF-Files-into-Calibre.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Convert PDF to iBooks
 
@@ -45,17 +63,32 @@ Run it and Click the "Add books" button in the top-left corner of the window to 
 
 ![Edit EPUB Metadata](http://www.epubor.com/images/uppic/Edit-EPUB-Metadata.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In addition, you can choose “Edit metadata individually”. We are prompted with a “summary” window and set covers by clicking “Browse” icon manually. For another, we are able to edit book title, author etc as well.
 
 ![Edit metadata individually](http://www.epubor.com/images/uppic/Edit-metadata-individually.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Click “Convert books” button from the drop-down menu to choose “Convert individually”.
 
 ![](http://www.epubor.com/images/uppic/Convert-individually.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 It will pop up a “summary” window. We should set EPUB as the Output format. Then we make sure that the edited metadata information and book covers are your favor. Next just click “ok” button and the process of converting depends on the size of your PDF eBooks. When it finshed, it would notify that you **convert pdf to ipad iBooks** successfully.
 
 ![convert pdf to ipad iBooks](http://www.epubor.com/images/uppic/convert-pdf-to-ipad-iBooks.jpg)
@@ -66,15 +99,15 @@ The newly created .epub file location is a default path. Or click “Click to op
 
 ![Open epub in ibooks](http://www.epubor.com/images/uppic/Open-epub-in-ibooks.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Pitch on “Three Philosophical Filmmakers” book (ePub) and open it with iBooks. Then it will save epub files to iBooks by itself. Finally, we can read epub ibook on mac. We can adjust font sizes in iBooks on the fly. if there are few formatting errors, you can [edit EPUB ebooks with free Sigil](https://tools.techidaily.com/epubor/products/). It can insert pictures or vector graphics that you have copied from the PDF.
 
 ![Read ePub on iBooks](http://www.epubor.com/images/uppic/Read-epub-on-iBooks.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Sync books to ipad
 
@@ -82,6 +115,12 @@ Launch iBooks and Sync the iPad device. Then your digital books will be transfer
 
 ![Sync books to ipad](http://www.epubor.com/images/uppic/Sync-books-to-ipad.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 By the way, If you import pdf files into Calibre in vain, they must be protected by DRM. Now **Ultimate eBook Converter** helps you to convert any Amazon kindle, Kobo, Fictionwise, B&N Nook books etc whether all eBooks are protected by DRM or not. There is no need to remove DRM at first.
 
 Download the tool for free:
@@ -97,7 +136,16 @@ http://download.epubor.com/epubor%5Fultimate.zip)
 ![author](http://www.epubor.com/images/uppic/jonny.png)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 [Jonny Greenwood](https://plus.google.com/u/0/+JonnyGreenwood999) joined Epubor since 2011, loves everything about eBooks and eReaders. He seeks the methods to read eBooks more freely and wants to share all he has got with you.
 
