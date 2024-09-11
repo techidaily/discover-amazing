@@ -1,26 +1,42 @@
 ---
 title: Guide to Moving ePUB Files From Nook to Sony eReader for Enhanced Reading Experience
-date: 2024-09-05T10:58:14.323Z
-updated: 2024-09-06T10:58:14.323Z
+date: 2024-09-10T09:32:28.213Z
+updated: 2024-09-11T09:32:28.213Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/a0bc606d13bf5b4bb98db38e302e2de3fccfa94f74c2f49ef3ec08979e13d4fd.jpg
 ---
 
-## Guide to Moving ePUB Files From Nook to Sony eReader for Enhanced Reading Experience
+
+
+
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+## Guide to Moving ePUB Files From Nook to Sony eReader for Enhanced Reading Experience
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120867/26400?prodsku=mars" target="_top" id="2120867">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120867/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How to transfer Nook ePUB books to Sony eReaders
 
 Posted by [Ada Wang](https://plus.google.com/+AdaWang/posts) on 12/25/2023 4:38:36 PM.
@@ -33,36 +49,12 @@ Posted by [Ada Wang](https://plus.google.com/+AdaWang/posts) on 12/25/2023 4:38:
 
 **![nook to sony](https://www.epubor.com/images/remote/D4/1D/D41D8C_73379168120.png "nook to sony")**Maybe you have some ebooks in ePUB format from B&N, but you received a Sony Reader as a gift a few days ago. How do you read B&N/Nook books on Sony Reader?  
   
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The following guide is about how to transfer Nook epub books to Sony Reader.   
   
 If your Nook books have DRM protection, maybe your Sony Reader is not able to read them. Because a part of Nook books are protected by Nook DRM, while Sony Reader only supports Adobe Adept DRM protection.
 
 As a result, if you want to read all your purchased Barnes&;Noble Nook books on your Sony Reader, the most reliable way is to strip your B&;N Nook book's DRM.
 
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Transfer Nook DRM protected books to Sony Reader. 
 
 #### **1.Download your purchased Nook books to computer** 
@@ -70,6 +62,26 @@ As a result, if you want to read all your purchased Barnes&;Noble Nook books on 
 You can download and install the Nook for Windows app and run it , click "Refresh" button to sync all your purchased books to your computer. Then click the cover of your Nook books to download them to your computer.
 
 ![sync nook books](http://www.epubor.com/images/uppic/sync-nook-books-via-nook-for-pc.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982570">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Important Note: The bad news is the NOOK for Windows App is no longer available for new downloads from the Microsoft Store. However, existing customers can continue to use the app as usual, with all previous NOOK content accessible in their NOOK Library. If there is no way for you to download Nook for Windows app, the best way to transfer Nook books to other eReaders is to [**Remove Nook DRM on Android**](https://tools.techidaily.com/epubor/products/) by using **Epubor Nook Converter**.
 
@@ -97,12 +109,6 @@ Then plug your Sony Reader to your computer, copy & paste those books to your So
 
 #### **![sony ereader](https://www.epubor.com/images/uppic/18.jpg "sony ereader")**5, **Transfer Adobe DRM protected books to Sony Reader**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115950/19272" target="_top" id="2115950">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115950" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115950/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1) Keeping your Sony Reader plugged to your computer with USB cable. Nook for PC will detect the eBook device and a "My library" dialog box will pop out. Then please click "Authorize Device" and "Finished". At the same time you will see an icon of Sony Reader appearing in the left column under "My library".
 
 2) Click on the Nook ePUB eBooks you want to transfer on the right side of the screen and keep holding the mouse button down. Drag the mouse until the arrow is over your device's icon in the left pane. Then let go.
@@ -114,6 +120,20 @@ Tips
 * [Strip ePUB DRM on Adobe Digital Editions(Kobo,Sony Reader,Google iRiver Story HD etc)](https://tools.techidaily.com/epubor/products/)
 * [Transfer ePUB to Kindle](https://tools.techidaily.com/epubor/products/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Transfer Adobe DRM protected books to Sony Reader
 
 The method above is suitable for a people who has purchased lots of Nook DRM protected books in B&N store. But if you have also purchased many books in B&N store which are **protected by Adobe DRM**, you should follow these steps.
@@ -122,12 +142,6 @@ To read Nook books on Sony Reader without stripping the copy-protection, you sho
 
 ![plug sony to ade](https://www.epubor.com/images/ade-plug-sony.png)How to do it? Download the book through Nook for PC, and find the book in your computer. (For my Win XP computer, I find them in "My Documents\\My Barnes & Noble eBooks"). 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Then install [Adobe Digital Editions](http://www.adobe.com/products/digital-editions.html), this is a manager and reader for all Adobe protected books. Open the Nook book with ADE, if you can read it smoothly, then congratulations, you are able to transfer the book to your Sony Reader, but if not, then this book is protected by B&N Nook DRM, you can only read it by Nook app, unless you strip its DRM.
 
 Then how to transfer the DRM protected books to your Sony Reader? As I mentioned before, ADE is more than a eBook reader while it can also manage and transfer your Adobe protected books. So you can ust this app to transfer your Nook books to Sony Reader.
@@ -140,12 +154,34 @@ If everything goes well, click on the Sony Reader icon, you can see the book dis
 
 ![ade transfer books to sony](https://www.epubor.com/images/ade-transfer-sony.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### What if you want to transfer Nook books to other eReaders?
 
 Maybe you don't have a Sony Reader, but a Kindle Paperwhite, Kobo, or even other eReaders not that popular. You can also transfer Nook books to them.

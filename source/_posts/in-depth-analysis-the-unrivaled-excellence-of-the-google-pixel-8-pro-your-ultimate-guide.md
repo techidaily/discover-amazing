@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: The Unrivaled Excellence of the Google Pixel 8 Pro - Your Ultimate Guide"
-date: 2024-09-05T10:58:12.636Z
-updated: 2024-09-06T10:58:12.636Z
+date: 2024-09-10T09:32:26.559Z
+updated: 2024-09-11T09:32:26.559Z
 tags:
   - product-reviews
 categories:
@@ -21,20 +21,22 @@ thumbnail: https://thmb.techidaily.com/2d824596cda220209cd5b9247c0c0e4bf48214334
 
 ![pixel 8pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/pixel-8pro.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
+
 #####  Google Pixel 8 Pro
 
 9/ 10 
@@ -153,9 +155,37 @@ Expand
 
 [See at Google Store](https://store.google.com/config/pixel%5F8%5Fpro?hl=en-US&selections=eyJwcm9kdWN0RmFtaWx5IjoiY0dsNFpXeGZPRjl3Y204PSJ9) [See at Best Buy](https://shop-links.co/link/?exclusive=1&publisher_slug=itechdaily19598&url=https%3A%2F%2Fwww.bestbuy.com%2Fsite%2Fgoogle-pixel-8-pro-128gb-unlocked-bay%2F6559256.p%3FskuId%3D6559256) [$900 at Amazon](http://www.amazon.com/dp/B0CGTJ12Z9/?tag=hotoge-20&ascsubtag=UUhtgUeUpU2000644&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fgoogle-pixel-8-pro-review%2F&asc%5Fcampaign=Affiliate) [See at Verizon](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2000644/https://www.verizon.com/smartphones/google-pixel-8-pro/) [See at T-Mobile](https://www.t-mobile.com/cell-phone/google-pixel-8-pro) [See at AT&T](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2000644/https://www.att.com/buy/phones/google-pixel-8-pro.html) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  Price and Availability
 
  The Google Pixel 8 Pro is available to purchase right now, starting at $999 for 128GB of built-in storage. The price goes up to $1,399 for 1TB of storage space. You can choose from Bay (blue), Obsidian (black), and Porcelain (off-white), and the phone can be purchased directly from Google, all major cellular carriers, and other third-party retailers.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ##  A Similar but Softer Look and Feel
 
@@ -169,30 +199,12 @@ Close
 
 ![Fingerprint smudges on the Google Pixel 8 Pro camera bump](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/fingerprint-smudges-on-the-google-pixel-8-pro-camera-bump-1.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Justin Duino / How-To Geek
 
  My biggest (and really only) complaint with the Pixel 8 Pro's design is Google's use of polished aluminum on the camera bar. The matte glass is so good at not showing fingerprints that even the slightest smudge on the reflective metal stands out like a sore thumb. I did my best to keep the bar clean, but because of its location, it's natural for my finger to rest on the protrusion to help stabilize the device in my hand.
 
  Additionally, while I haven't noticed any significant damage on my review unit, the [Pixel 7 Pro's](https://vimeo-videos.techidaily.com/new-2024-approved-how-to-make-youtube-thumbnails-online-and-offline/) camera bar had a similar reflective metal, and it scratched extremely easily. After a year with the phone, I fully expect to see similar wear on the Pixel 8 Pro. I would have preferred the matte finish found on the regular Pixel 8.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The Display Checks All the Boxes
 
 Close 
@@ -203,12 +215,6 @@ Close
 
 ![Fingerprint sensor and shortcuts on the Google Pixel 8 Pro lock screen](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/fingerprint-sensor-and-shortcuts-on-the-google-pixel-8-pro-lock-screen-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Justin Duino / How-To Geek
 
  Under the display, you'll find an optical fingerprint sensor. As far as I can tell, it's the same sensor found in last year's Pixel 7 Pro. It's fast, accurate, and gets the job done. I still miss the days of [rear fingerprint sensors](https://facebook-videos.techidaily.com/in-2024-convenience-at-your-fingertips-enable-autoplay-of-youtube-videos-on-fb/), but I'll digress.
@@ -217,16 +223,24 @@ Justin Duino / How-To Geek
 
  Unfortunately, [Apple's Face ID](https://instagram-video-files.techidaily.com/new-mastering-instagram-concealing-tags-efficiently/) (found on most iPhones and some iPads), which uses a TrueDepth camera to capture infrared images of your face, is much more versatile. Face Unlock works amazingly during the day when there is plenty of light, but at night or if something is obscuring your face (like sunglasses or a mask), the feature becomes useless. Thankfully, you can use the fingerprint sensor in conjunction with Face Unlock, so you're never without a secure way to unlock your phone, but I'd love to see Google move towards Apple's way of thinking.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  AI, Android 14, and More AI
 
 ![AI editing button in Google Photos on the Google Pixel 8 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/ai-editing-button-in-google-photos-on-the-google-pixel-8-pro-1.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Justin Duino / How-To Geek
 
  If you've used any recent version of Android, you will be right at home with Android 14 on the Pixel 8 Pro. There are only minor user-side improvements, including an iOS-style lock screen customization feature where you can swipe between clock styles and colors. This version of Android appears to be focused on under-the-hood refinements, which I greatly appreciate.
@@ -247,12 +261,20 @@ Close
 
  The good news is that Google isn't done adding new AI features that might be more useful for more people. For example, with the launch of the [Gemini large language model (LLM)](https://www.howtogeek.com/googles-new-gemini-ai-is-ready-to-fight-gpt-4/), the Pixel 8 Pro's Recorder app can use the onboard Nano LLM to summarize recordings, all without an internet connection.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ##  The Processor's Greatest Strength Is Stability
 
  As alluded to at the beginning of this review, previous Pixels (including the Google Pixel Fold) suffered greatly from overheating CPUs. Almost any extended use would result in a phone that could be too hot to hold and, in turn, cause the device to become a stuttering mess.
@@ -261,15 +283,23 @@ Close
 
  Looking at raw numbers, according to Geekbench 6, the Pixel 7 Pro, with its Tensor G2 CPU, has a 1,409 single-core score and 3,399 multi-core score. The Pixel 8 Pro, with the Tensor G3, comes in with a 1,736 single-core score and 4,405 multi-core score. What does that mean? Basically, the Pixel 8 Pro can handle more powerful processes without succumbing to lag or other disruptions.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  I Never Had to Go Searching for a Charger
 
 ![Battery percentage on the Google Pixel 8 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/battery-percantage-on-the-google-pixel-8-pro-1.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Justin Duino / How-To Geek
 
@@ -278,6 +308,26 @@ Justin Duino / How-To Geek
  I'm happy to report that, with the improved Tensor G3 CPU, I was easily getting over six hours of screen-on time. There were some fluctuations if I ever used battery-intensive apps, such as the camera or a game, but that's to be expected.
 
  For the most part, I simply dropped the Pixel 8 Pro on a [second-gen Pixel Stand](https://store.google.com/us/product/pixel%5Fstand%5F2nd%5Fgen?hl=en-US) to wirelessly charge overnight. But if you need a quick top-off, the phone charges at up to 30W when plugged into its USB-C port. A full charge from 0 to 100% takes a little over 70 minutes.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ##  The King of Taking Great Photos Reliably
 
@@ -301,6 +351,20 @@ Close
 
 ![Person holding up the Google Pixel 8 and Google Pixel 8 Pro side by side](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/person-holding-up-the-google-pixel-8-and-google-pixel-8-pro-side-by-side.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137411/7443" target="_top" id="2137411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137411" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Justin Duino / How-To Geek
 
  Spec to spec, the biggest difference between the Pixel 8 Pro and the [regular Pixel 8](https://youtube-tips.techidaily.com/24-simple-guide-youtube-to-mp3-on-mac/) (besides the screen size) is the lack of a telephoto camera on the back. The smaller model shares the same 50MP main camera and includes an ultra-wide (though the sensor size drops down to 12MP), but if you want to zoom into a photo, it'll all be digital.
@@ -308,6 +372,20 @@ Justin Duino / How-To Geek
  There are additional under-the-hood differences, like 12GB vs 8GB of RAM, but surprisingly, there are missing software features. Things like Pro camera controls, Video Boost, and Night Sight Video are all locked to the more expensive Google Pixel. According to a [statement provided to _Android Authority_](https://www.androidauthority.com/google-pixel-8-pro-video-boost-availability-3372309/), the cost of cloud infrastructure needed to run Video Boost wasn't baked into the Pixel 8's price, which is why it's not present.
 
 [![Rear camera of the Google Pixel 8-1](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/11/rear-camera-of-the-google-pixel-8-1.jpg)](https://youtube-tips.techidaily.com/24-simple-guide-youtube-to-mp3-on-mac/) Related 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ##### [Google Pixel 8 Review: Reality Optional](https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-motorola-edge-40withwithout-a-pc-by-drfone-android/) 
 
@@ -325,12 +403,6 @@ A best-in-class Android phone that’s all about the camera and AI tricks.
 
 ![Google Pixel 8 Pro laying on a table next to a Google Pixel Watch 2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/google-pixel-8-pro-laying-on-a-table-next-to-a-google-pixel-watch-2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Justin Duino / How-To Geek
 
  If you're in the market for a new Android smartphone, I have zero hesitancy in recommending the [Google Pixel 8 Pro](https://amazon.com/dp/B0CGTJ12Z9?tag=hotoge-20&ascsubtag=UUhtgUeUpU2000644&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fgoogle-pixel-8-pro-review%2F&asc%5Fcampaign=Affiliate). Ads for this device will tell you all about its AI features, but the true star of the show continues to be its camera quality. It's hard to take a bad photo with this device. Ultimately, the AI features faded into the background after a couple of weeks with the phone.
@@ -339,12 +411,20 @@ Justin Duino / How-To Geek
 
 ![pixel 8pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/pixel-8pro.png) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
 
 #####  Google Pixel 8 Pro

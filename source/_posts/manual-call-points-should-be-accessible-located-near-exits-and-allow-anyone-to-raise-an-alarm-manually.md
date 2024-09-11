@@ -1,7 +1,7 @@
 ---
 title: Manual Call Points Should Be Accessible, Located Near Exits, and Allow Anyone to Raise an Alarm Manually.
-date: 2024-09-05T10:58:12.745Z
-updated: 2024-09-06T10:58:12.745Z
+date: 2024-09-10T09:32:26.670Z
+updated: 2024-09-11T09:32:26.670Z
 tags:
   - product-reviews
 categories:
@@ -9,13 +9,27 @@ categories:
 thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-53-04.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Manual Call Points Should Be Accessible, Located Near Exits, and Allow Anyone to Raise an Alarm Manually.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Key Takeaways
 
@@ -27,26 +41,22 @@ thumbnail: https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2
 
 ![Origin PC EON16-X Laptop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/eon16-x-top-open.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
+
+
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
 #####  Origin PC EON16-X Laptop
 
 8/ 10 
@@ -129,28 +139,24 @@ The Origin PC EON16-X boasts premier gaming power with an understated and custom
 
 Expand 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Games, Benchmarks, and Overall Performance** 
 
 ![Origin PC EON16-X Laptop open on a table top running Diablo IV](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-08-02-10-32-28.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Bill Loguidice / How-To Geek
 
  On paper, since the built-in display has a reasonable 2,560 x 1,600 resolution, the EON16-X should be able to maintain very high frame rates with high visual fidelity in even the most demanding games. In practice, that definitely proved to be the case, especially when paired with the display's super-fast 240 Hz refresh rate and [NVIDIA G-SYNC](https://www.nvidia.com/en-us/geforce/products/g-sync-monitors/) support.
@@ -163,6 +169,20 @@ Bill Loguidice / How-To Geek
 
 ![Origin PC EON16-X Laptop open a table top running Fortnite](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-49-18.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Bill Loguidice / How-To Geek
 
  One of my favorite games to play is _Fortnite_, and I would never consider using Wi-Fi over wired Ethernet for a competitive online shooter like this, except in this case. There was not a single connectivity issue with Wi-Fi and performance was as smooth as I've ever experienced. While there were the usual frame rate drops until shortly after landing, once in-game, the frame rate remained a solid 60fps. This was when paired with very high settings, and it felt like a fresh experience even after previously logging over 1,100 hours of playtime. Of course, if you want to run the game with a frame rate in the hundreds, that's always an option, but you'll sacrifice some of the higher-end visuals that really shine on this display.
@@ -171,12 +191,6 @@ Bill Loguidice / How-To Geek
 
 ![Origin PC EON16-X Laptop open on a table top with a close up of the keyboard and trackpak](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-41-51.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  It's easy to switch between the laptop's different operating modes. Either from the included Origin Control Center software or with the dedicated key next to the power button. "Office" mode is a lower performance mode for general non-gaming use that rarely, if ever, activates the fans. With "Game" mode, the laptop automatically adjusts the fan speeds based on the present situation. "Turbo" mode unleashes the laptop's full performance potential, but also lets the fan run at full capacity and noise levels. Finally, there's a "Custom" mode where you can set profiles for different games or applications and tweak processor, GPU, and fan settings to get exactly the performance you need.
@@ -199,6 +213,26 @@ Bill Loguidice / How-To Geek
 
 ![Origin PC EON16-X Laptop open on a table top next to its AC adapter](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-25-03.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Bill Loguidice / How-To Geek
 
  The EON16-X sports a conservative design and traditional all-black styling. This is no thin and light laptop, but you wouldn't necessarily suspect it's a gaming powerhouse either.
@@ -207,12 +241,20 @@ Bill Loguidice / How-To Geek
 
 ![Origin PC EON16-X Laptop closed on a table top showing the Waves 3 panel print](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-08-02-21-08-04.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Bill Loguidice / How-To Geek
 
  As mentioned, while the keyboard is not the best I've ever used, [even for a laptop](https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-a24-phone-network-ready-by-drfone-android/), and there's no [Copilot key](https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-oppo-a78-without-them-knowing-drfone-by-drfone-virtual-android/), it's still pleasant to type on with good balance and responsiveness to each key. For anyone who says you don't need a tenkey, maybe you don't, but I certainly found its inclusion convenient for entering numbers, even if each key is only half the width of the letter keys.
@@ -229,12 +271,20 @@ Bill Loguidice / How-To Geek
 
  There's not much Origin PC adds to the basic Windows 11 Home operating system installation, so there are no real worries about bloatware. The most useful inclusion is the aforementioned Origin Control Center, which lets you monitor and modify general, performance, lighting, battery, display, and system settings. It's not as robust as some of the offerings from other companies, but I appreciated that the user interface for things like adjusting the keyboard and light bar lighting was straightforward and not overwhelming.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## **Input and Output: Ports for Every Need and Few Other Frills** 
 
 ![Rear of Origin PC EON16-X Laptop open on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-29-08.jpg) 
@@ -245,17 +295,25 @@ Bill Loguidice / How-To Geek
 
 ![Right side of open Origin PC EON16-X Laptop on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-29-41.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Bill Loguidice / How-To Geek
 
  I was not particularly impressed by the quality of the built-in speakers. The default sound profile sounds good at about 60% volume, but beyond that level I noted some muddiness. There's a little bit of bass, which is nice, but not a great deal of overall presence or noticeable surround effects. In short, these speakers will do in a pinch, but you're better off using external wired or Bluetooth speakers or headphones.
 
 ![Left side of open Origin PC EON16-X Laptop on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-28-27.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Bill Loguidice / How-To Geek
 
@@ -269,20 +327,42 @@ A sample image from the full HD webcam.
 
  There's no Windows Hello or fingerprint security validation, so you're limited to entering a passcode from the keyboard. This is yet another example of how this is designed as a relatively no-frills laptop primarily dedicated to delivering top-notch gaming performance.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## **Should You Buy the Origin PC EON16-X Laptop?** 
 
  There's no question that Origin PC has delivered an ultimate gaming, and performance-oriented laptop (with a price to match) in the [EON16-X](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2004606/https://www.originpc.com/gaming/laptops/eon16-x/). As expected, battery life is not one of the EON16-X's strong suits, making it more of a transportable workstation than a truly mobile companion. However, if you're a dedicated gamer and general power user, it would be difficult to find a better performer, especially with such a big screen size in such a relatively understated, and customizable, package.
 
 ![Origin PC EON16-X Laptop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/08/eon16-x-top-open.png) 
 
-![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
 #####  Origin PC EON16-X Laptop
 
 8/ 10 

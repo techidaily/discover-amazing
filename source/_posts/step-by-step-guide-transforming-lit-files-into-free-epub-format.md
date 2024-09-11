@@ -1,26 +1,28 @@
 ---
 title: "Step-by-Step Guide: Transforming LIT Files Into Free EPUB Format"
-date: 2024-09-05T10:58:15.029Z
-updated: 2024-09-06T10:58:15.029Z
+date: 2024-09-10T09:32:28.913Z
+updated: 2024-09-11T09:32:28.913Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/45a1460bb3d83c14f6fab217fbb0ba6456c10cd4af0bd545fe595145134aa150.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Step-by-Step Guide: Transforming LIT Files Into Free EPUB Format
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+## Step-by-Step Guide: Transforming LIT Files Into Free EPUB Format
+
 ## How to Convert LIT to EPUB Free
 
 Posted by [Jonny Greenwood](https://plus.google.com/u/0/+JonnyGreenwood999) on 3/12/2020 9:54:24 AM.
@@ -32,6 +34,20 @@ Posted by [Jonny Greenwood](https://plus.google.com/u/0/+JonnyGreenwood999) on 3
 ![follow](http://www.epubor.com/images/follow.png)
 
 ![how to convert LIT to EPUB free via Calibre](http://www.epubor.com/images/uppic/how-to-convert-lit-to-epub-free.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Lit is the file format developed by Microsoft in 2000\. It's an ebook format used by the Microsoft e-Reader program to read eBooks. But it's not readable on iPad, iPhone, Adobe Digital Editions, Nook, Sony eReader, and so on. So if you want to read .lit file on various devices, you can solve this issue by converting LIT to the more common and popular ebook format like ePub. 
 
@@ -47,23 +63,45 @@ This is just what I want to write in this article. Though there are many tools t
 
 Here is the guide **how to convert LIT to EPUB free via Calibre**. It's my current preferred process.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Step1: Install and Launch Calibre
 
 Firstly[download Calibre](http://calibre-ebook.com/download) and select a proper version for your PC. Here we select "Windows". Download or copy your LIT eBooks on your computer please.
 
 ![downlaod and install calibre](http://www.epubor.com/images/uppic/download-calibre-to-convert-lit-files.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Step2: Add Microsoft LIT Files to Calibre
 
 Drag and drop a few LIT e-book files into calibre, or click on the "Add Books" button at the upper left of the toolbar and browse for the LIT ebooks you want to work with. When you succeed in adding, the title of the ebook will show in the middle list.
 
 ![add lit files to calibre](http://www.epubor.com/images/uppic/add-lit-to-calibre.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Double click the file you want to select for a review before the ebook conversion.
 
@@ -71,24 +109,26 @@ For DRM-free LIT files, you can open directly, then convert to ePub.
 
 ![open drm free lit files](http://www.epubor.com/images/uppic/open-free-drm-lit-with-calibre.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 But for DRM protected LIT files, it will pop up a window as the image shows below. This book is DRMed.
 
 ![open drm protected lit files](http://www.epubor.com/images/uppic/open-drmed-lit-with-calibre.jpg)
 
-So if also receive this dialog when converting lit to epub, maybe you should remove drm from lit files. 
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+So if also receive this dialog when converting lit to epub, maybe you should remove drm from lit files. 
+
 ### Step 3: Convert LIT to EPUB: Calibre
 
 Select the lit files, then touch the "Convert books" button.
@@ -99,12 +139,20 @@ Set "ePub" as output format at the new pop-up window. Then click "OK".
 
 ![convert lit to epub](http://www.epubor.com/images/uppic/convert-lit-to-epub.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 As the image shows, we can also set pdf as output format if we want to convert lit to pdf. Of course we can also convert lit to mobi and convert lit to azw. The formats calibre support are as below.
 
 **Input Formats:** LIT, CBZ, CBR, CBC, CHM, ePub, FB2, HTML, HTMLZ, LRF, MOBI, ODT, PDF, PRC, PDB, PML, RB, RTF, SNB, TCR, TXT, TXTZ
@@ -115,22 +163,30 @@ Look to the bottom of the right corner. As soon as you see the message "Jobs: 0"
 
 ![lit to epub converted](http://www.epubor.com/images/uppic/lit-to-epub-converted.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115909/19272" target="_top" id="2115909">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115909" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 After the conversion is completed, you can see the ebook cover, including the output format (ePub) and original format (LIT), then click "Click it to open" to get your books.
 
 ![click lit files to open](http://www.epubor.com/images/uppic/click-lit.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Now you can transfer your converted LIT books to iPad, Nook, Sony e-reader, and so on. What do you think of this guide?
 
 Also Read
@@ -138,6 +194,26 @@ Also Read
 * [How to convert ACSM to ePub](https://tools.techidaily.com/epubor/products/)
 
 ![author](http://www.epubor.com/images/uppic/jonny.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [Jonny Greenwood](https://plus.google.com/u/0/+JonnyGreenwood999) joined Epubor since 2011, loves everything about eBooks and eReaders. He seeks the methods to read eBooks more freely and wants to share all he has got with you.
 

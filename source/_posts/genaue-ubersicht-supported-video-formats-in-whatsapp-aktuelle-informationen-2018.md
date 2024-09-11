@@ -1,26 +1,14 @@
 ---
 title: "Genaue Übersicht: Supported Video Formats in WhatsApp - Aktuelle Informationen (2018)"
-date: 2024-09-05T10:58:13.603Z
-updated: 2024-09-06T10:58:13.603Z
+date: 2024-09-10T09:32:27.531Z
+updated: 2024-09-11T09:32:27.531Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/d7bfa61b324ffaea9cbfc11e938036f2476668f1b77c7e6a5441829794f7ed33.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Genaue Übersicht: Supported Video Formats in WhatsApp - Aktuelle Informationen (2018)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Whatsapp unterstützte Videoformate auf einen Blick 2018
 
 Whatsapp, als eine der beliebtesten Apps zum Senden und Empfangen von Videos, Fotos und Dokumenten, hat täglich eine Milliarde von aktiven Benutzern. Die massive Popularität führt auch zu gelegentlichen Ärgernissen, weil nicht alle Benutzer Whatsapp Videoformate kennen. Sie können in Whatsapp Warnmeldung geraten wie "Dieses Video konnte nicht gesendet werden. Bitte wähle ein anderes Video aus.", "Dieses Video kann nicht verwendet werden." und mehr. 
@@ -29,18 +17,20 @@ Zum Beispiel, wenn ich ein mit meinem iPhone 8 Plus aufgenommenen 1 Minute HEVC 
 
 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2123477/16836" target="_top" id="2123477">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123477" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123477/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Welche Videodatei wird von Whatsapp unterstützt?
 
 Whatsapp akzeptiert nicht alle Videos. Es gibt Einschränkungen. Unten sind die besten Videoformate für Whatsapp 2018, zusammen mit der passenden Dateigröße. Bevor Sie eine Videodatei über Whatsapp auf Ihrem iPhone, Android, Windows oder Mac senden, teilen oder abspielen, überprüfen Sie, ob das Video passt. 
@@ -69,6 +59,26 @@ Anscheinend benötigen Sie, inkompatible Videos in die von Whatsapp unterstützt
 
 [![](https://www.macxdvd.com/tutorial-de/howto_image/free_down_win_de_2.png)](https://tools.techidaily.com/macxdvd/products/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Virengeprüft
 
 [![](https://www.macxdvd.com/tutorial-de/howto_image/free_down_de_2.png)](https://tools.techidaily.com/macxdvd/products/) 
@@ -77,23 +87,45 @@ Virengeprüft
 
 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Tutorial: Wie kann man Videos für Whatsapp komprimieren/konvertieren?
 
 Downloaden Sie zuerst den Whatsapp Video Converter für Windows (10) oder Mac (inkl. macOS High Sierra):  
 [![](https://www.macxdvd.com/tutorial-de/../seoimage/download-icon-step.png)Windows-Version kostenlos downloaden](https://tools.techidaily.com/macxdvd/products/)  
 [![](https://www.macxdvd.com/tutorial-de/../seoimage/download-icon-step.png)Mac-Version kostenlos downloaden](https://tools.techidaily.com/macxdvd/products/) 
+
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
 
 **Schritt 1:** Starten Sie den Converter und klicken Sie auf den Button "+Video", um Videos zu laden, die nicht von Whatsapp unterstützt werden.
 
@@ -101,12 +133,6 @@ Downloaden Sie zuerst den Whatsapp Video Converter für Windows (10) oder Mac (i
 
 ![Whatsapp Video Format](https://www.macxdvd.com/tutorial-de/article-image/instagram-videoformat-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Schritt 3:** Um die 16MB Anforderung zu erfüllen oder um längere Videos zu senden, müssen Sie [Videos komprimieren](https://tools.techidaily.com/macxdvd/products/) für Whatsapp.  
 **\*** Das Programm erlaubt Ihnen, die Videoparameter anzupassen, wie z.B. die Auflösung von 4K zu 1080p skalieren, um die Größe kleiner zu machen.  
 **\*** Es stelle Vielzahl der Bearbeitungsfunktionen zur Verfügung, inkl. Trimmen, Schneinen, etc.  
@@ -122,23 +148,45 @@ Nachdem Sie die Videos, die nicht von Whatsapp unterstützt werden, in akzeptier
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/video-converterru.png) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ### So einfach Videos in Whatsapp Videoformate konvertieren
 
  MacX Video Converter Pro kann beliebige 4K UHD, HD und SD Videos in MP4, MKV, HEVC, MOV, FLV und 370+ Formate für Whatsapp konvertieren. Es wird auch Whatsapp Videogröße um 40%-70% kleiner machen, um die 16MB Anforderung zu befriedigen. 
 
 [![](https://www.macxdvd.com/tutorial-de/howto_image/winx-de.png)](https://tools.techidaily.com/macxdvd/products/) [![](https://www.macxdvd.com/tutorial-de/howto_image/macx-de.png)](https://tools.techidaily.com/macxdvd/products/) 
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 
 
 
@@ -150,17 +198,79 @@ Nachdem Sie die Videos, die nicht von Whatsapp unterstützt werden, in akzeptier
 
 ![](https://www.macxdvd.com/tutorial-de/howto_image/youtube2.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [Instagram Videoformat](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/tutorial-de/howto_image/youtube3.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [MP4 komprimieren](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/tutorial-de/howto_image/youtube4.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [Instagram Video downloaden](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[YouTube Musik kostenlos downloaden](https://tools.techidaily.com/macxdvd/products/)** 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Wie kann man YouTube Musik kostenlos downloaden und hören
 
@@ -170,28 +280,10 @@ So wandeln Sie YouTube-Video in MP3-Format um
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[Die besten YouTube Downloader für Mac](https://tools.techidaily.com/macxdvd/products/)** 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Top 5 YouTube Downloader für Mac im Test
 
 ![](https://www.macxdvd.com/tutorial-de/../seoimage/link_icon_blue.png) **[YouTube to MP4 Converter](https://tools.techidaily.com/macxdvd/products/)** 
 
-<!-- affiliate ads begin -->
-<span id="1542129">
-					<video width="864" height="1152" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Wie kann man YouTube in MP4 downloaden und umwandeln
 
 

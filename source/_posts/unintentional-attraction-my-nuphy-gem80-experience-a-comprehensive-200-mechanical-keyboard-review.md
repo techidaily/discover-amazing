@@ -1,7 +1,7 @@
 ---
 title: "Unintentional Attraction: My Nuphy Gem80 Experience - A Comprehensive $200 Mechanical Keyboard Review"
-date: 2024-09-05T10:58:12.675Z
-updated: 2024-09-06T10:58:12.675Z
+date: 2024-09-10T09:32:26.598Z
+updated: 2024-09-11T09:32:26.598Z
 tags:
   - product-reviews
 categories:
@@ -9,20 +9,36 @@ categories:
 thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652a5ccde76155c26629dae8fb.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-## Unintentional Attraction: My Nuphy Gem80 Experience - A Comprehensive $200 Mechanical Keyboard Review
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+## Unintentional Attraction: My Nuphy Gem80 Experience - A Comprehensive $200 Mechanical Keyboard Review
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Key Takeaways
 
 * Gem80 Mechanical Keyboard offers luxurious feel with Mint switches and high-quality keycaps.
@@ -31,16 +47,24 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
  I had no intention of ditching my Apple Magic Keyboard, but after spending some time with the [Nuphy Gem80](https://nuphy.com/products/gem80), I had more trouble than I expected pulling myself away from its clacky sounds and ultra-smooth response.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  This Mechanical Keyboard Still Requires Some Work
 
 ![Side view of the Nuphy Gem80](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/side-view-of-the-nuphy-gem80.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  Nuphy has been slowly easing its way into the more “serious” and higher-end mechanical keyboards for a little bit now. (It tried to go in this direction with its [Field75](https://nuphy.com/collections/keyboards/products/field75) “gaming keyboard,” but to me, the board felt kind of cheap and I wasn’t impressed with its layout.)
@@ -51,40 +75,16 @@ Tyler Hayes / How-To Geek
 
 ![Bottom of the Nuphy Gem80 in blue](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/bottom-of-the-nuphy-gem80-in-blue.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  So, I got to work installing mint switches under the black high-profile double-shot PBT keycaps. On first impression, I was struck by the premium feel in all aspects. Not just the weight, but even the blue finish of the Mystic Indigo color was stunning. I found the Gem80 to look much more generic and lower-end in pictures than in person.
 
  While there are lots of lighting options on the Gem80, from backlit keys to a glowing logo, they're all preset. You can cycle through colors, patterns, and brightness, but not do too much else. The lit up homing keys is a neat feature, but I personally didn't find myself caring about them much in practice. I did like that the keyboard is programmable using the VIA software. It's widely supported across different manufucaturers which means a lot of people should be familiar with it.
 
-<!-- affiliate ads begin -->
-<span id="1265663">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  A Glorious Feel
 
 ![Metal frame of Nuphy Gem80](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/metal-frame-of-nuphy-gem80.JPG) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Tyler Hayes / How-To Geek
 
  Make no mistake, the Gem80 isn’t a low-profile board. It’s big and probably requires the use of a wrist rest to get the proper angle with its six-degrees of tilt. But if that’s what you’re looking for, the Gem80 should be a fantastic option. I almost felt like I was able to play it like a piano, gliding around the keys with effortless ease.
@@ -95,9 +95,37 @@ Tyler Hayes / How-To Geek
 
  I found myself really thrilled with the rigid and nearly 2.5-pound weighted metal frame. It always stayed planted, but it also didn’t feel so dense that I couldn’t move it or shift it around if needed. A perfect blend of practical and luxury, if you ask me. I often forgot the bottom was plastic until I needed to turn it over to look for the switch controlling power or the port for charging it.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  Is the Nuphy Gem80 Worth Spending Money On?
 
 ![Close up view of the Nuphy Gem80 keys](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/close-up-view-of-the-nuphy-gem80-keys.JPG) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Tyler Hayes / How-To Geek
 
@@ -106,6 +134,20 @@ Tyler Hayes / How-To Geek
  It is a bit of a bummer that the keyboard starts at $149.95 for the wired version with no switches or keycaps. Thankfully, to get a wireless model with all the needed pieces, the price only jumps about $50\. If you’re new to mechanical keyboards and are on the fence, you might want to glance at the [Nuphy Halo75 V2](https://nuphy.com/collections/keyboards/products/halo75-v2-qmk-via-wireless-custom-mechanical-keyboard) pre-order. It might hit the sweet spot for an already assembled board with future customization.
 
 ![Nuphy Gem80](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cleanshot-2024-04-23-at-14-34-55-2x.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #####  Nuphy Gem80
 
