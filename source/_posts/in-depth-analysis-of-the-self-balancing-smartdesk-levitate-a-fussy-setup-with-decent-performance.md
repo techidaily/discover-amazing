@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Self-Balancing SmartDesk Levitate: A Fussy Setup with Decent Performance"
-date: 2024-09-10T09:32:26.647Z
-updated: 2024-09-11T09:32:26.647Z
+date: 2024-09-15T00:59:23.846Z
+updated: 2024-09-16T08:39:51.818Z
 tags:
   - product-reviews
 categories:
@@ -9,47 +9,7 @@ categories:
 thumbnail: https://thmb.techidaily.com/ee3331b3501f448fb98f7a4ee3a53ac099c1c123c857eac1255a179cf5757415.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## In-Depth Analysis of the Self-Balancing SmartDesk Levitate: A Fussy Setup with Decent Performance
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983575">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Key Takeaways
 
@@ -60,20 +20,6 @@ thumbnail: https://thmb.techidaily.com/ee3331b3501f448fb98f7a4ee3a53ac099c1c123c
 [Autonomous SmartDesk Levitate](http://www.autonomous.ai/standing-desks/smartdesk-levitate) really missed the mark by swapping out a traditional standing desk control panel for an overly sensitive, poorly placed motion sensor that adjusts the desk based on hand movements. Rather than optimizing space, the sensor takes too much away and actively intrudes on the user experience.
 
 ![Autonomous SmartDesk Levitate](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/autonomous-smartdesk-levitate.png) 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #####  Autonomous SmartDesk Levitate
 
@@ -135,51 +81,11 @@ Autonomous SmartDesk Levitate puts a new spin on standing desks. Its sensor simu
 
 Expand 
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ##  Assembly: More of a Chore Than Needed
 
  Before getting to the meat of it, assembly is key when considering office furniture. I have assembled [quite a few standing desks](https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-s23-fe-by-drfone-android/) over the past year alone. I'm used to the flow and, for the most part, can do it without much assistance from the manual. That was not the case with the SmartDesk Levitate. I question going with four individual legs, as that added more opportunity for a malfunction and made the assembly that much more difficult.
 
 ![Autonomous SmartDesk Levidesk out of packaging and ready for assembly](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/autonomous-smartdesk-levidesk-assembly.jpg) 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Mark LoProto / How-to Geek
 
@@ -195,19 +101,12 @@ Mark LoProto / How-to Geek
 
  The desktop itself is also a nice, light wood finish. It reminds me a little of FlexiSpot’s Q8 Pro Standing Desk, just thicker. Unfortunately, the thick desktop and steel frame made it impossible for me to use my clamp monitor arm without having to modify the arm in ways it’s not meant to be modified.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ##  The Levitate Sensor: Who Asked for This?
 
@@ -225,20 +124,6 @@ Your browser does not support the video tag.
 
 ![Autonomous SmartDesk Levitate  sensor built into the desktop](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/06/autonomous-smartdesk-levidesk-sensor.jpg) 
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Mark LoProto / How-to Geek
 
  The button also adjusts the desk, but less efficiently than a control panel with directional arrows. Most of the time, pressing it would only move the desk in one direction until it reached the maximum or minimum height. Then, it would shift gears and move in the opposite direction. You are supposed to use the sensor, so I get why this isn’t some fine-tuned mechanic. Still, I think a secondary button to allow for intuitive push-button height adjustment is necessary for the best user experience.
@@ -255,6 +140,13 @@ Mark LoProto / How-to Geek
 
  Promo materials suggest routing your monitor’s cord into the well and pulling it back out to hide excess, but the small cutout limits the types of cords that will fit. You can just hide the wire and leave the ends exposed, but that’s less wire management and more creating a tangled mess elsewhere.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Should You Buy the Autonomous SmartDesk Levitate?
 
  It is rare that I outright don’t recommend something. I feel there’s a market for everything. As much as [I typically like](https://facebook-video-content.techidaily.com/updated-2024-approved-the-path-to-an-irresistible-cover-video/) Autonomous products, though, I don’t see the market for its [SmartDesk Levitate](https://www.autonomous.ai/standing-desks/smartdesk-levitate). From the incredibly frustrating assembly to the impractical sensor; too many kinks need to be worked out for something that costs $999.
@@ -264,6 +156,13 @@ Mark LoProto / How-to Geek
  For its cost, I think there is way too much that needs to be addressed before this standing desk is anything beyond fodder for technology lovers like myself.
 
 ![Autonomous SmartDesk Levitate](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/autonomous-smartdesk-levitate.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #####  Autonomous SmartDesk Levitate
 
@@ -279,8 +178,6 @@ Autonomous SmartDesk Levitate puts a new spin on standing desks. Its sensor simu
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -290,41 +187,18 @@ Autonomous SmartDesk Levitate puts a new spin on standing desks. Its sensor simu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-expert-color-techniques-for-professional-visual-narratives/"><u>[New] Expert Color Techniques for Professional Visual Narratives</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-breaking-into-the-world-of-youtube-stellar-intros-in-imovie-for-2024/"><u>[Updated] Breaking Into the World of YouTube  Stellar Intros in iMovie for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-premium-gopro-enhancements-guide/"><u>[Updated] Premium Gopro Enhancements Guide</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-step-by-step-screenshot-guide-capturing-and-storing-hulu-content/"><u>[Updated] Step-by-Step Screenshot Guide  Capturing and Storing Hulu Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-eminent-exchanges-a-curated-list-of-top-reddit-posts/"><u>2024 Approved  Eminent Exchanges  A Curated List of Top Reddit Posts</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-facebook-live-a-comprehensive-tutorial/"><u>2024 Approved  Navigating Facebook Live  A Comprehensive Tutorial</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-10-budget-friendly-video-alteration-journeys-explored/"><u>2024 Approved  Top 10 Budget-Friendly Video Alteration Journeys Explored</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/advanced-ebook-sdk-enhance-your-publishing-with-ecore-technology/"><u>Advanced eBook SDK - Enhance Your Publishing with eCore Technology</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/advanced-strategies-for-exceptional-color-grading-via-3d-lut-filters/"><u>Advanced Strategies for Exceptional Color Grading via 3D LUT Filters</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-free-comic-book-reader-apps-top-6-picks-to-enjoy-comics-anytime-anywhere/"><u>Best Free Comic Book Reader Apps: Top 6 Picks to Enjoy Comics Anytime, Anywhere</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diy-tutorial-embedding-custom-watermarks-into-your-pdf-files-for-enhanced-security/"><u>DIY Tutorial: Embedding Custom Watermarks Into Your PDF Files for Enhanced Security</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/easy-guide-downloading-and-accessing-your-vitalsource-e-books/"><u>Easy Guide: Downloading and Accessing Your VitalSource E-Books</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effortless-audio-format-change-transform-your-audible-aax-files-into-portable-m4b/"><u>Effortless Audio Format Change: Transform Your Audible AAX Files Into Portable M4B</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effortless-e-reading-on-amazons-kindle-a-complete-tutorial-for-converting-pdf-documents-to-mobi-format/"><u>Effortless E-Reading on Amazon's Kindle: A Complete Tutorial for Converting PDF Documents to MOBI Format</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-reading-experience-converting-ibooks-to-optimal-pdf-files/"><u>Enhance Your Reading Experience: Converting iBooks to Optimal PDF Files</u></a></li>
-<li><a href="https://win-able.techidaily.com/expert-tips-to-resolve-msi-dragon-center-not-working-errors/"><u>Expert Tips to Resolve 'MSI Dragon Center Not Working' Errors</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/free-download-how-to-access-e-books-at-no-cost/"><u>Free Download: How to Access E-Books at No Cost</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/has-support-ended-for-this-product-or-service/"><u>Has Support Ended For This Product or Service?</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-change-your-sim-pin-code-on-your-vivo-s17-pro-phone-by-drfone-android/"><u>How To Change Your SIM PIN Code on Your Vivo S17 Pro Phone</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-your-apple-iphone-14-pro-max-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-asus-rog-phone-8-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Asus ROG Phone 8? | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mac-conversion-guide-how-to-turn-your-pdfs-into-epub-format/"><u>Mac Conversion Guide: How to Turn Your PDFs Into EPUB Format</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/master-the-art-of-ebook-creation-with-these-essential-5-strategies-for-authors/"><u>Master the Art of eBook Creation with These Essential 5 Strategies for Authors</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/master-your-mac-experience-expert-tips-and-tricks/"><u>Master Your Mac Experience: Expert Tips and Tricks</u></a></li>
-<li><a href="https://network-issues.techidaily.com/overcoming-obscure-video-halt/"><u>Overcoming Obscure Video Halt</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/radiant-registering-and-unregistering-rites/"><u>Radiant Registering and Unregistering Rites</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/seamlessly-enjoy-your-digital-library-how-to-use-an-app-for-kindle-on-ios-devices/"><u>Seamlessly Enjoy Your Digital Library: How to Use an App for Kindle on iOS Devices</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/spark-growth-innovative-techniques-for-a-blazing-digital-presence-online/"><u>Spark Growth: Innovative Techniques for a Blazing Digital Presence Online</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-on-liberating-your-ebooks-unlock-drm-protection-from-epub-pdf-and-azw-files/"><u>Step-by-Step Tutorial on Liberating Your eBooks: Unlock DRM Protection From ePUB, PDF, and AZW Files</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-turning-your-ibook-collection-into-readable-kindle-ebooks/"><u>Step-by-Step Tutorial: Turning Your iBook Collection Into Readable Kindle Ebooks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/the-ultimate-guide-transforming-your-audible-aax-downloads-into-crystal-clear-mp3s/"><u>The Ultimate Guide: Transforming Your Audible AAX Downloads Into Crystal Clear MP3s</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ultimate-epubor-your-definitive-guide-to-the-perfect-ebook-converter/"><u>Ultimate EPUBor: Your Definitive Guide to the Perfect eBook Converter</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-the-impact-of-update-policies-on-application-improvements/"><u>Understanding the Impact of Update Policies on Application Improvements</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-user-feedback-on-privacy-guidelines/"><u>Understanding User Feedback on Privacy Guidelines</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unlimited-access-a-guide-to-disabling-amazons-kindle-drm-and-removing-perpetual-locks/"><u>Unlimited Access: A Guide to Disabling Amazon's Kindle DRM and Removing Perpetual Locks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unlocking-ebook-security-a-comprehensive-tutorial-on-extracting-and-transforming-drm-pdbs-into-pdf-format/"><u>Unlocking eBook Security: A Comprehensive Tutorial on Extracting and Transforming DRM PDBs Into PDF Format</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-comprehensive-guide-to-streaming-and-archiving-minecraft-on-mac/"><u>[Updated] In 2024, Comprehensive Guide to Streaming and Archiving Minecraft on Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-elite-picks-a-list-mac-video-capture-tools/"><u>[Updated] In 2024, Elite Picks A-List Mac Video Capture Tools</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premier-plugins-for-dynamic-type-design-in-ae/"><u>[Updated] Premier Plugins for Dynamic Type Design in AE</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-social-scoop-twitters-trending-talks-for-2024/"><u>[Updated] Social Scoop Twitter’s Trending Talks for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-techniques-for-using-live-photos-in-mobile-devices/"><u>Advanced Techniques for Using Live Photos in Mobile Devices</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/best-3-no-cost-substitutes-for-windows-media-center-in-windows-10-and-11/"><u>Best 3 No-Cost Substitutes for Windows Media Center in Windows 10 & 11</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/practices-in-selecting-youtube-video-extractor-apps-for-android-for-2024/"><u>Best Practices in Selecting YouTube Video Extractor Apps for Android for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-zte-blade-a73-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on ZTE Blade A73 5G online without jailbreak</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-apple-iphone-13-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From Apple iPhone 13</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfecting-game-sounds-ps5-and-ps4-adjustments-for-2024/"><u>Perfecting Game Sounds PS5 & PS4 Adjustments for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/specifications-detaillees-pour-lia-video-winx-informations-a-jour-et-officielles/"><u>Spécifications Détaillées Pour L'IA Vidéo Winx: Informations À Jour Et Officielles</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/tecniche-di-ottimizzazione-perfette-per-i-file-video-mp4-nel-2023/"><u>Tecniche Di Ottimizzazione Perfette per I File Video MP4 Nel 2023</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winxvideo-advanced-recording-of-screenshots-live-webcams-and-sound-with-ai-capabilities/"><u>WinxVideo: Advanced Recording of Screenshots, Live Webcams, and Sound with AI Capabilities</u></a></li>
 </ul></div>
+
