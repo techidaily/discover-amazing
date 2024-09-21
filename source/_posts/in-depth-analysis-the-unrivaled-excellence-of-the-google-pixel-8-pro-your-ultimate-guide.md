@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: The Unrivaled Excellence of the Google Pixel 8 Pro - Your Ultimate Guide"
-date: 2024-09-10T09:53:41.262Z
-updated: 2024-09-16T05:41:04.821Z
+date: 2024-09-14T10:46:47.845Z
+updated: 2024-09-21T04:21:21.346Z
 tags:
   - product-reviews
 categories:
@@ -163,13 +163,6 @@ Justin Duino / How-To Geek
 
  Additionally, while I haven't noticed any significant damage on my review unit, the [Pixel 7 Pro's](https://vimeo-videos.techidaily.com/new-2024-approved-how-to-make-youtube-thumbnails-online-and-offline/) camera bar had a similar reflective metal, and it scratched extremely easily. After a year with the phone, I fully expect to see similar wear on the Pixel 8 Pro. I would have preferred the matte finish found on the regular Pixel 8.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  The Display Checks All the Boxes
 
 Close 
@@ -188,15 +181,28 @@ Justin Duino / How-To Geek
 
  Unfortunately, [Apple's Face ID](https://instagram-video-files.techidaily.com/new-mastering-instagram-concealing-tags-efficiently/) (found on most iPhones and some iPads), which uses a TrueDepth camera to capture infrared images of your face, is much more versatile. Face Unlock works amazingly during the day when there is plenty of light, but at night or if something is obscuring your face (like sunglasses or a mask), the feature becomes useless. Thankfully, you can use the fingerprint sensor in conjunction with Face Unlock, so you're never without a secure way to unlock your phone, but I'd love to see Google move towards Apple's way of thinking.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  AI, Android 14, and More AI
 
 ![AI editing button in Google Photos on the Google Pixel 8 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/ai-editing-button-in-google-photos-on-the-google-pixel-8-pro-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115931/19272" target="_top" id="2115931">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115931" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Justin Duino / How-To Geek
@@ -228,21 +234,22 @@ Close
  Looking at raw numbers, according to Geekbench 6, the Pixel 7 Pro, with its Tensor G2 CPU, has a 1,409 single-core score and 3,399 multi-core score. The Pixel 8 Pro, with the Tensor G3, comes in with a 1,736 single-core score and 4,405 multi-core score. What does that mean? Basically, the Pixel 8 Pro can handle more powerful processes without succumbing to lag or other disruptions.
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  I Never Had to Go Searching for a Charger
 
 ![Battery percentage on the Google Pixel 8 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/battery-percantage-on-the-google-pixel-8-pro-1.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Justin Duino / How-To Geek
 
@@ -275,16 +282,10 @@ Close
 ![Person holding up the Google Pixel 8 and Google Pixel 8 Pro side by side](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/person-holding-up-the-google-pixel-8-and-google-pixel-8-pro-side-by-side.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Justin Duino / How-To Geek
@@ -321,13 +322,6 @@ Justin Duino / How-To Geek
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #####  Google Pixel 8 Pro
 
 9/ 10 
@@ -353,18 +347,17 @@ The Google Pixel 8 Pro includes the search giant's latest CPU, the Tensor G3, is
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-expert-picks-premium-costless-screencasting-apps-reviewed/"><u>[New] Expert Picks Premium, Costless Screencasting Apps Reviewed</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-constant-media-recording-specialists/"><u>[New] In 2024, Constant Media Recording Specialists</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-spoken-word-unveiled-enhancing-expressiveness-on-slides/"><u>[Updated] 2024 Approved The Spoken Word Unveiled Enhancing Expressiveness on Slides</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/handbrake-vs-winx-dvd-ripper-in-depth-comparison-of-top-free-dvd-ripping-tools/"><u>HandBrake VS WinX DVD Ripper: In-Depth Comparison of Top Free DVD Ripping Tools</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/les-meilleurs-outils-libres-dintelligence-artificielle-pour-restaurer-vos-photographies-vintages/"><u>Les Meilleurs Outils Libres D'Intelligence Artificielle Pour Restaurer Vos Photographies Vintages</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/leveraging-innovative-features-a-guide-to-implementing-speech-inputs-in-powerpoint-for-2024/"><u>Leveraging Innovative Features A Guide to Implementing Speech Inputs in PowerPoint for 2024</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722978188155-sm-bus-controller-driver-download-windows-11-10-8-and-7/"><u>SM Bus Controller Driver Download – Windows 11, 10, 8 & 7</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-transferring-iso-images-onto-your-usb-device/"><u>Step-by-Step Guide: Transferring ISO Images Onto Your USB Device</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-on-how-to-install-winx-video-converter-deluxe-free-version-with-complete-functionality-accessible/"><u>Step-by-Step Tutorial on How to Install WinX Video Converter Deluxe Free Version with Complete Functionality Accessible</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/the-ultimate-guide-to-free-online-video-stabilization-top-8-tools-and-tips-for-2024/"><u>The Ultimate Guide to Free Online Video Stabilization Top 8 Tools and Tips for 2024</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-unveiling-the-latest-in-computer-components/"><u>Tom's Tech Insights: Unveiling the Latest in Computer Components</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/winx-dvd-and-winx-dvd/"><u>WinX DVD 리퍼 & 비디오 컨버터 소프트웨어 - WinX의 공식 웹사이트에서 DVD 만들기</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/9mp4-mp3/"><u>トップ9の無料MP4-MP3変換ツール：忙しい生活中に簡単な移行方法</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-10-superior-video-conferencing-software-titles-for-2024/"><u>[New] 10 Superior Video Conferencing Software Titles for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-expediting-the-engagement-of-instagram-videos/"><u>[New] Expediting the Engagement of Instagram Videos</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725284870288-iphone-14/"><u>轻松地从iPhone 14及以前型号删除照片集 - 完全指南</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/comprehensive-guide-to-restoring-your-mac-via-recovery-mode-instructions/"><u>Comprehensive Guide to Restoring Your Mac via Recovery Mode Instructions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ending-pixel-party-comprehensive-guide-to-diagnose-and-fix-unstable-monitor-behavior-in-windows-10/"><u>Ending Pixel Party: Comprehensive Guide to Diagnose and Fix Unstable Monitor Behavior in Windows 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/refine-and-clarify-your-footage-expert-tips-for-video-sharpening-in-premier-pro-2024/"><u>Refine and Clarify Your Footage: Expert Tips for Video Sharpening in Premier Pro 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-blueprint-behind-mondlys-education/"><u>The Blueprint Behind Mondly's Education</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-10-ameliorateurs-de-videos-bases-sur-ia-gratuits-pour-pc-et-mac-disponibles-en-ligne/"><u>Top 10 Améliorateurs De Vidéos Basés Sur IA Gratuits Pour PC Et MAC Disponibles en Ligne</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-guide-addressing-the-most-frequent-iphone-13-challenges/"><u>Troubleshooting Guide: Addressing the Most Frequent iPhone 13 Challenges</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-why-cant-i-play-call-of-duty-black-ops-4/"><u>Troubleshooting: Why Can't I Play Call of Duty Black Ops 4?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-the-ipogo-get-you-banned-and-how-to-solve-it-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>Will the iPogo Get You Banned and How to Solve It On Motorola Edge 40 | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winxvideo-ai-high-speed-gpu-accelerated-video-and-audio-conversion/"><u>WinxVideo AI: High-Speed GPU Accelerated Video and Audio Conversion</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis of the Self-Balancing SmartDesk Levitate: A Fussy Setup with Decent Performance"
-date: 2024-09-15T00:59:23.846Z
-updated: 2024-09-16T08:39:51.818Z
+date: 2024-09-16T00:21:13.808Z
+updated: 2024-09-21T08:20:12.466Z
 tags:
   - product-reviews
 categories:
@@ -102,10 +102,10 @@ Mark LoProto / How-to Geek
  The desktop itself is also a nice, light wood finish. It reminds me a little of FlexiSpot’s Q8 Pro Standing Desk, just thicker. Unfortunately, the thick desktop and steel frame made it impossible for me to use my clamp monitor arm without having to modify the arm in ways it’s not meant to be modified.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  The Levitate Sensor: Who Asked for This?
@@ -117,6 +117,13 @@ Mark LoProto / How-to Geek
 Your browser does not support the video tag. 
 
  The biggest issue is that the sensor responds to literally anything. If I had a book too close and moved it, the sensor either picked it or its shadow up and reacted. Even my cats set the desk off, which is when I realized how much of a niche audience this will have. I ultimately had to cover the sensor when I wasn’t using the desk so my cats wouldn’t jump up and kick the sensor off. Initially, I kept returning to the office to find the table at either the maximum or minimum height.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ###  It’s Not All Bad
 
@@ -141,10 +148,10 @@ Mark LoProto / How-to Geek
  Promo materials suggest routing your monitor’s cord into the well and pulling it back out to hide excess, but the small cutout limits the types of cords that will fit. You can just hide the wire and leave the ends exposed, but that’s less wire management and more creating a tangled mess elsewhere.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  Should You Buy the Autonomous SmartDesk Levitate?
@@ -156,13 +163,6 @@ Mark LoProto / How-to Geek
  For its cost, I think there is way too much that needs to be addressed before this standing desk is anything beyond fodder for technology lovers like myself.
 
 ![Autonomous SmartDesk Levitate](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/06/autonomous-smartdesk-levitate.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #####  Autonomous SmartDesk Levitate
 
@@ -187,18 +187,18 @@ Autonomous SmartDesk Levitate puts a new spin on standing desks. Its sensor simu
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-comprehensive-guide-to-streaming-and-archiving-minecraft-on-mac/"><u>[Updated] In 2024, Comprehensive Guide to Streaming and Archiving Minecraft on Mac</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-elite-picks-a-list-mac-video-capture-tools/"><u>[Updated] In 2024, Elite Picks A-List Mac Video Capture Tools</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-premier-plugins-for-dynamic-type-design-in-ae/"><u>[Updated] Premier Plugins for Dynamic Type Design in AE</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-social-scoop-twitters-trending-talks-for-2024/"><u>[Updated] Social Scoop Twitter’s Trending Talks for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/advanced-techniques-for-using-live-photos-in-mobile-devices/"><u>Advanced Techniques for Using Live Photos in Mobile Devices</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-3-no-cost-substitutes-for-windows-media-center-in-windows-10-and-11/"><u>Best 3 No-Cost Substitutes for Windows Media Center in Windows 10 & 11</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/practices-in-selecting-youtube-video-extractor-apps-for-android-for-2024/"><u>Best Practices in Selecting YouTube Video Extractor Apps for Android for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-zte-blade-a73-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on ZTE Blade A73 5G online without jailbreak</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-unlock-apple-id-without-phone-number-from-apple-iphone-13-by-drfone-ios/"><u>In 2024, Unlock Apple ID without Phone Number From Apple iPhone 13</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/perfecting-game-sounds-ps5-and-ps4-adjustments-for-2024/"><u>Perfecting Game Sounds PS5 & PS4 Adjustments for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/specifications-detaillees-pour-lia-video-winx-informations-a-jour-et-officielles/"><u>Spécifications Détaillées Pour L'IA Vidéo Winx: Informations À Jour Et Officielles</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/tecniche-di-ottimizzazione-perfette-per-i-file-video-mp4-nel-2023/"><u>Tecniche Di Ottimizzazione Perfette per I File Video MP4 Nel 2023</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/winxvideo-advanced-recording-of-screenshots-live-webcams-and-sound-with-ai-capabilities/"><u>WinxVideo: Advanced Recording of Screenshots, Live Webcams, and Sound with AI Capabilities</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-premier-choice-the-best-10-recorders-for-tech-talks/"><u>[New] Premier Choice The Best 10 Recorders for Tech Talks</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-from-passive-to-profitable-youtube-revenue-techniques-for-2024/"><u>[Updated] From Passive to Profitable YouTube Revenue Techniques for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-subscriber-youtube-connection-maximizing-engagement/"><u>[Updated] The Subscriber-YouTube Connection Maximizing Engagement</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/conversion-gratuite-des-images-bmp-vers-ligne-movavi/"><u>Conversion Gratuite Des Images BMP Vers Ligne - Movavi</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/enhanced-webcam-integration-with-manycam-plugin-for-adobe-connect/"><u>Enhanced Webcam Integration with ManyCam Plugin for Adobe Connect</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explore-premium-manycam-substitutes-enhance-your-live-broadcasts-with-advanced-virtual-camera-features/"><u>Explore Premium ManyCam Substitutes: Enhance Your Live Broadcasts with Advanced Virtual Camera Features</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explore-the-ultimate-live-video-solutions-with-virtual-camcorders-like-manycam/"><u>Explore the Ultimate Live Video Solutions with Virtual Camcorders Like ManyCam</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-samsung-galaxy-s23-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Samsung Galaxy S23 to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-full-tutorial-to-bypass-your-oppo-reno-8t-5g-face-lock-by-drfone-android/"><u>In 2024, Full Tutorial to Bypass Your Oppo Reno 8T 5G Face Lock?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-oppo-find-n3-flip-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Oppo Find N3 Flip Phone that is Locked?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-pokemon-go-joystick-on-vivo-y28-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use Pokemon Go Joystick on Vivo Y28 5G? | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/live-streaming-made-easy-with-manycam-advanced-video-editing-and-background-changing-app/"><u>Live Streaming Made Easy with ManyCam - Advanced Video Editing and Background Changing App</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-to-updating-and-downloading-canon-mx490-windows-drivers/"><u>Step-by-Step Guide to Updating and Downloading Canon MX490 Windows Drivers</u></a></li>
 </ul></div>
 

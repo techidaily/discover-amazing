@@ -1,7 +1,7 @@
 ---
 title: Top 10 Highest-Grossing Films Winning an Academy Award
-date: 2024-09-14T12:08:00.281Z
-updated: 2024-09-16T11:48:59.331Z
+date: 2024-09-16T00:45:20.978Z
+updated: 2024-09-20T18:02:56.629Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/e3f7f8209eab3a8810779d3b9fd5af99ac53d2f641a80f57ad3f83729c4706c2.jpg
@@ -74,6 +74,19 @@ The Shape of Water led the 2020 Academy awards with Best Picture and Best Direct
 
 ![best oscar movies 2017](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/lalaland.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 best oscar movies 2017
 
 Damien Chazelle's "La La Land" failed to edge out Arrival, Moonlight, Manchester by the Sea to win the Best Picture among the best Oscar movies nominees in 2017\. But it is still one of the top ten Oscar awarded movies. The [romantic movie](https://tools.techidaily.com/macxdvd/products/) is part of a grand tradition but goes beyond the movies like Singin' in the Rain, Moulin Rouge, etc. Most media regard it as the more deserving than top Oscar-winning movie and the [best Hollywood movies](https://tools.techidaily.com/macxdvd/products/)in 2016 with its outstanding artistic designing, photographing, light, costume, sweet soundtracks, etc. 
@@ -90,13 +103,6 @@ Ever since its first appearance in 1997, _Titanic_ became a monster hit and cont
 
 Note: You can take advantages of a top Oscar movie downloader such as MacX Video Converter Pro and [free download](https://tools.techidaily.com/macxdvd/products/) it to download Oscar films online and then play thee Oscar winning movies on iPhone iPad and Android on the go. 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### NO. 5: Forrest Gump (1994)
 
 ![best oscar movies - forrest gump](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/forrest-gump.jpg) 
@@ -108,19 +114,6 @@ best oscar movies - forrest gump
 ### No.6: Jaws (1975)
 
 ![best oscar movies - jaws](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/jaws.jpg) 
-
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 best oscar movies - jaws
 
@@ -138,13 +131,6 @@ A young man who survives a disaster at sea is hurtled into an epic journey of ad
 
 ![best socar movies - slumdog millionaire](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/slumdogmillionaire.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 best socar movies - slumdog millionaire
 
 Slumdog Millionaire sweeps eight Oscars at the 81st Academy Awards including Best Adapted Screenplay, Cinematography, Sound Mixing, Film Editing, Original Score, Original Song, Direction and Motion Picture. Its achievement is undeniable since this academy award winning movie presents us a top gripping tale of heroism, struggle, true love, and unfailing friendship set in the rough-and-tumble world of modern India to millions of moviegoers for the first time.
@@ -153,16 +139,16 @@ Slumdog Millionaire sweeps eight Oscars at the 81st Academy Awards including Bes
 
 **Tips 2:** You can watch the downloaded/converted top Oscar movies on iPhone iPad by best oscar winning movies from Mac to iPhone sync with [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/), which offers an all-in-one solution to [transfer video from Mac to iPhone](https://tools.techidaily.com/macxdvd/products/) iPad iPod in a flash. 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### No. 9: Crouching Tiger, Hidden Dragon (2000)
 
 ![best oscar movies _ crouching tiger, hidden dragon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/crouchingtiger.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 best oscar movies \_ crouching tiger, hidden dragon
 
@@ -191,6 +177,13 @@ When talking about the top Oscar movies in 1999, perhaps two films must be menti
 Top horror film - The Eyes of My Mother
 
 When referring to Cameron directed movies, Titanic is surely his masterpiece. But for sci-fi movie followers, Avatar is the way to go. The movie's scale is undeniably impressive and also deserves to be one of the top ten best Oscar winning movies of all time.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No.13: The Lord of the Rings: The Return of the King (2003)
 
@@ -243,13 +236,6 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Top Best Movies to Rent And Solution to Copy Top DVD Rentals](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
@@ -276,11 +262,25 @@ Related Articles
 
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hot Products
 
 * [MacX DVD Ripper Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tips and Tricks
 
@@ -320,14 +320,14 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/updated-finding-chrome-companions-custom-melodies/"><u>[Updated] Finding Chrome Companion's Custom Melodies</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725288369491-ai-6/"><u>AI 비디오를 변환하는 시기의 6가지 선두에게서 최고 업스케일링 퍼포머: 도구, 기능, 비교</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/android-unlock-code-sim-unlock-your-lenovo-phone-and-remove-locked-screen-by-drfone-android/"><u>Android Unlock Code Sim Unlock Your Lenovo Phone and Remove Locked Screen</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-lock-screen-wallpaper-on-vivo-y200e-5g-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Vivo Y200e 5G</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-14-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 14 Pro Max Without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/masterclass-in-selecting-quality-parts-the-toms-hardware-approach/"><u>Masterclass in Selecting Quality Parts: The Tom's Hardware Approach</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/quick-and-high-quality-conversion-of-mkv-files-to-xvid-format-on-windows-10/"><u>Quick and High-Quality Conversion of MKV Files to Xvid Format on Windows 10</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/streamline-your-virtual-adventure-with-kinemaster-tips-and-competitor-analysis/"><u>Streamline Your Virtual Adventure with KineMaster Tips & Competitor Analysis</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725290305294-winxdvd/"><u>WinXDVD 소프트웨어를 제대로 사용하는 데 도움이 되는 전문가 수락 - 강력한 교육기</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-boost-ig-content-three-steps-for-compelling-video-descriptions/"><u>[New] Boost IG Content - Three Steps for Compelling Video Descriptions</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-vlc-mastery-understanding-key-mac-settings-and-options/"><u>[New] In 2024, VLC Mastery Understanding Key Mac Settings and Options</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-best-gif-creation-tools-reviewed-by-industry-vets/"><u>[Updated] 2024 Approved Best GIF Creation Tools Reviewed by Industry Vets</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-hot-tips-for-business-indispensable-items-you-cant-afford-to-miss-for-2024/"><u>[Updated] Hot Tips for Business Indispensable Items You Can't Afford To Miss for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ending-pixel-party-comprehensive-guide-to-diagnose-and-fix-unstable-monitor-behavior-in-windows-10/"><u>Ending Pixel Party: Comprehensive Guide to Diagnose and Fix Unstable Monitor Behavior in Windows 10</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-rethinking-wirecast-choices/"><u>In 2024, Rethinking WireCast Choices</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-gif-speed-boosters-top-online-and-mobile-apps/"><u>New In 2024, GIF Speed Boosters Top Online and Mobile Apps</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-10-ameliorateurs-de-videos-bases-sur-ia-gratuits-pour-pc-et-mac-disponibles-en-ligne/"><u>Top 10 Améliorateurs De Vidéos Basés Sur IA Gratuits Pour PC Et MAC Disponibles en Ligne</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ultimate-ranking-choosing-the-ideal-mp4-encoder-for-your-projects/"><u>Ultimate Ranking: Choosing the Ideal MP4 Encoder for Your Projects</u></a></li>
 </ul></div>
 
