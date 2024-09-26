@@ -1,7 +1,7 @@
 ---
 title: Top 10 Highest-Grossing Films Winning an Academy Award
-date: 2024-09-16T00:45:20.978Z
-updated: 2024-09-20T18:02:56.629Z
+date: 2024-09-21T16:54:05.265Z
+updated: 2024-09-26T03:53:26.002Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/e3f7f8209eab3a8810779d3b9fd5af99ac53d2f641a80f57ad3f83729c4706c2.jpg
@@ -34,12 +34,26 @@ Movies always play a big part in our digital life, some of which let us burst in
 
 ![2023 Academy winner](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/2018-oscar-prediction.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Table of Contents
 
 * [List of Top 10 Best Academy Award Movies](https://tools.techidaily.com/macxdvd/products/)
 * [More Top Searched Oscar Winning Movies Of All Times](https://tools.techidaily.com/macxdvd/products/)
 
 ![update icon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon1.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Oscars 2023 - Who Is the Biggest Winner This Year?
 
@@ -74,19 +88,6 @@ The Shape of Water led the 2020 Academy awards with Best Picture and Best Direct
 
 ![best oscar movies 2017](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/lalaland.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 best oscar movies 2017
 
 Damien Chazelle's "La La Land" failed to edge out Arrival, Moonlight, Manchester by the Sea to win the Best Picture among the best Oscar movies nominees in 2017\. But it is still one of the top ten Oscar awarded movies. The [romantic movie](https://tools.techidaily.com/macxdvd/products/) is part of a grand tradition but goes beyond the movies like Singin' in the Rain, Moulin Rouge, etc. Most media regard it as the more deserving than top Oscar-winning movie and the [best Hollywood movies](https://tools.techidaily.com/macxdvd/products/)in 2016 with its outstanding artistic designing, photographing, light, costume, sweet soundtracks, etc. 
@@ -107,6 +108,13 @@ Note: You can take advantages of a top Oscar movie downloader such as MacX Video
 
 ![best oscar movies - forrest gump](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/forrest-gump.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 best oscar movies - forrest gump
 
 "Life is like a box of chocolates, you never know what you're gonna get." This famous catchphrase also describes Forrest Gump, serving up an abundance of surprising treats, sometimes sweet and sometimes bitter. This is just one of those unforgettable yet best Oscar films that everyone loved. It's worth mentioning the perfect balance between comedy and drama, serious and funny, entertaining and thought-provoking makes the flick one of the best academy award winning movies in 1994.
@@ -115,9 +123,23 @@ best oscar movies - forrest gump
 
 ![best oscar movies - jaws](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/jaws.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 best oscar movies - jaws
 
 Since noted Zionist director Steven Spielberg released Jaws in 1975, this giant vengeful shark had summer moviegoers screaming in their seats. Years after the premiere, this Oscar winning movie is still considered as the best thrilling film that will last forever. Thanks to our young, ambitious Steven Spielberg, we can therefore witness a thrilling and surprisingly funny piece of entertainment.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No.7: Life of Pi (2012)
 
@@ -126,6 +148,13 @@ Since noted Zionist director Steven Spielberg released Jaws in 1975, this giant 
 best oscar movies - life of pi
 
 A young man who survives a disaster at sea is hurtled into an epic journey of adventure and discovery. There's no denying that Life of Pi is a dazzlingly beautiful and enchanting film that's just as likely to make you think as it is to make you shed a tear or cheer in triumph. It's no surprise Ang Lee has been named the winner of the Best Director award at the 2013 Academy Awards. By the way, for those who got this flick on DVD and want to rip Life of Pi DVD for playback on mobile devices, you can head over to this Life of Pi DVD backup tutorial.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### NO. 8: Slumdog Millionaire (2008)
 
@@ -143,13 +172,6 @@ Slumdog Millionaire sweeps eight Oscars at the 81st Academy Awards including Bes
 
 ![best oscar movies _ crouching tiger, hidden dragon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/crouchingtiger.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 best oscar movies \_ crouching tiger, hidden dragon
 
 If you want to know more about the Chinese culture and kungfu, Crouching Tiger, Hidden Dragon is absolutely the solid choice. This Ang Lee-directed 2000 film won him the Oscar for Best Foreign Language Film and three other Academy Awards. In many ways, Crouching Tiger Hidden Dragon is pure Wu Xia, containing formulaic elements such as honourable warriors, swordswomen, powerfulswords, and often magic and mythical beasts. Quite simply, Crouching Tiger has everything. It is beautiful, breathtaking and deeply moving.
@@ -161,6 +183,13 @@ If you want to know more about the Chinese culture and kungfu, Crouching Tiger, 
 best oscar movies - finding nemo
 
 Filled with mystery, adventure, affection, friendship, this 3D computer animated film demonstrates its great appealing to moviegoers of almost all ages. When indulging yourself in this [3D movie](https://tools.techidaily.com/macxdvd/products/), you can see every visual detail that amazes in the gorgeous underwater world. So to speak, it is one of the most successful flicks produced by Pixar Animation Studios and Disney. Without any question, it is definitely the best Oscar movie in the range of animation. 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No.11: Saving Private Ryan (1998)
 
@@ -177,13 +206,6 @@ When talking about the top Oscar movies in 1999, perhaps two films must be menti
 Top horror film - The Eyes of My Mother
 
 When referring to Cameron directed movies, Titanic is surely his masterpiece. But for sci-fi movie followers, Avatar is the way to go. The movie's scale is undeniably impressive and also deserves to be one of the top ten best Oscar winning movies of all time.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### No.13: The Lord of the Rings: The Return of the King (2003)
 
@@ -262,25 +284,11 @@ Related Articles
 
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Hot Products
 
 * [MacX DVD Ripper Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Tips and Tricks
 
@@ -289,6 +297,19 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Data Transfer >>](https://tools.techidaily.com/macxdvd/products/)
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Company
 
@@ -318,5 +339,20 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-pro-tips-for-the-best-pc-snipping-software-of-today-for-2024/"><u>[Updated] Pro Tips for the Best PC Snipping Software of Today for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unveiling-leading-edge-vr-developers/"><u>[Updated] Unveiling Leading-Edge VR Developers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-web-funniness-constructor-for-2024/"><u>[Updated] Web Funniness Constructor for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ai-solutions-with-winxvideo-in-depth-faqs-and-expert-responses-covered/"><u>AI Solutions with WinxVideo – In-Depth FAQs & Expert Responses Covered</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/comparativa-profunda-entre-winx-dvd-ripper-y-handbrake-cual-ofrece-la-experiencia-de-descarga-mas-eficiente/"><u>Comparativa Profunda Entre WinX DVD Ripper Y Handbrake: ¿Cuál Ofrece La Experiencia De Descarga Más Eficiente?</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/convert-mp4-files-to-avi-format-without-cost-top-5-free-solutions/"><u>Convert MP4 Files to AVI Format Without Cost - Top 5 Free Solutions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/fast-facial-masking-on-piscart-a-convenient-guide-for-2024/"><u>Fast Facial Masking on PiscArt A Convenient Guide for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-chatgpt-enhances-crypto-trading-a-guide-to-5-key-benefits/"><u>How ChatGPT Enhances Crypto Trading: A Guide to 5 Key Benefits</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-did-your-iphone-15-pro-max-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>In 2024, Did Your iPhone 15 Pro Max Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/quick-instructions-for-downloading-and-fun-with-ifunny-memes/"><u>Quick Instructions for Downloading and Fun with iFunny Memes</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-10-freie-software-zum-sichern-von-dvds-wie-sie-den-kopierschutz-umgehen/"><u>Top-10 Freie Software Zum Sichern Von DVDs: Wie Sie Den Kopierschutz Umgehen</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unleash-your-media-freedom-with-winx-dvd-ripper-seamlessly-rip-and-converting-dvds-for-iphone-android-and-more/"><u>Unleash Your Media Freedom with WinX DVD Ripper - Seamlessly Rip & Converting DVDs for iPhone, Android & More</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/vob-to-mp4-5/"><u>プロフェッショナルVOB to MP4コンバーター - フリーではありませんが、上位5つをご紹介！</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: The Unrivaled Excellence of the Google Pixel 8 Pro - Your Ultimate Guide"
-date: 2024-09-14T10:46:47.845Z
-updated: 2024-09-21T04:21:21.346Z
+date: 2024-09-22T17:52:06.285Z
+updated: 2024-09-25T17:20:54.593Z
 tags:
   - product-reviews
 categories:
@@ -157,6 +157,13 @@ Close
 
 ![Fingerprint smudges on the Google Pixel 8 Pro camera bump](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/fingerprint-smudges-on-the-google-pixel-8-pro-camera-bump-1.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Justin Duino / How-To Geek
 
  My biggest (and really only) complaint with the Pixel 8 Pro's design is Google's use of polished aluminum on the camera bar. The matte glass is so good at not showing fingerprints that even the slightest smudge on the reflective metal stands out like a sore thumb. I did my best to keep the bar clean, but because of its location, it's natural for my finger to rest on the protrusion to help stabilize the device in my hand.
@@ -181,28 +188,15 @@ Justin Duino / How-To Geek
 
  Unfortunately, [Apple's Face ID](https://instagram-video-files.techidaily.com/new-mastering-instagram-concealing-tags-efficiently/) (found on most iPhones and some iPads), which uses a TrueDepth camera to capture infrared images of your face, is much more versatile. Face Unlock works amazingly during the day when there is plenty of light, but at night or if something is obscuring your face (like sunglasses or a mask), the feature becomes useless. Thankfully, you can use the fingerprint sensor in conjunction with Face Unlock, so you're never without a secure way to unlock your phone, but I'd love to see Google move towards Apple's way of thinking.
 
-<!-- affiliate ads begin -->
-<span id="1982457">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  AI, Android 14, and More AI
 
 ![AI editing button in Google Photos on the Google Pixel 8 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/ai-editing-button-in-google-photos-on-the-google-pixel-8-pro-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Justin Duino / How-To Geek
@@ -233,22 +227,21 @@ Close
 
  Looking at raw numbers, according to Geekbench 6, the Pixel 7 Pro, with its Tensor G2 CPU, has a 1,409 single-core score and 3,399 multi-core score. The Pixel 8 Pro, with the Tensor G3, comes in with a 1,736 single-core score and 4,405 multi-core score. What does that mean? Basically, the Pixel 8 Pro can handle more powerful processes without succumbing to lag or other disruptions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  I Never Had to Go Searching for a Charger
 
 ![Battery percentage on the Google Pixel 8 Pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/battery-percantage-on-the-google-pixel-8-pro-1.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Justin Duino / How-To Geek
@@ -258,6 +251,13 @@ Justin Duino / How-To Geek
  I'm happy to report that, with the improved Tensor G3 CPU, I was easily getting over six hours of screen-on time. There were some fluctuations if I ever used battery-intensive apps, such as the camera or a game, but that's to be expected.
 
  For the most part, I simply dropped the Pixel 8 Pro on a [second-gen Pixel Stand](https://store.google.com/us/product/pixel%5Fstand%5F2nd%5Fgen?hl=en-US) to wirelessly charge overnight. But if you need a quick top-off, the phone charges at up to 30W when plugged into its USB-C port. A full charge from 0 to 100% takes a little over 70 minutes.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##  The King of Taking Great Photos Reliably
 
@@ -280,13 +280,6 @@ Close
 ##  You'll Miss Out on More Than a Camera With the Pixel 8
 
 ![Person holding up the Google Pixel 8 and Google Pixel 8 Pro side by side](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/person-holding-up-the-google-pixel-8-and-google-pixel-8-pro-side-by-side.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Justin Duino / How-To Geek
 
@@ -312,6 +305,19 @@ A best-in-class Android phone that’s all about the camera and AI tricks.
 
 ![Google Pixel 8 Pro laying on a table next to a Google Pixel Watch 2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2023/10/google-pixel-8-pro-laying-on-a-table-next-to-a-google-pixel-watch-2.jpg) 
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Justin Duino / How-To Geek
 
  If you're in the market for a new Android smartphone, I have zero hesitancy in recommending the [Google Pixel 8 Pro](https://amazon.com/dp/B0CGTJ12Z9?tag=hotoge-20&ascsubtag=UUhtgUeUpU2000644&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fgoogle-pixel-8-pro-review%2F&asc%5Fcampaign=Affiliate). Ads for this device will tell you all about its AI features, but the true star of the show continues to be its camera quality. It's hard to take a bad photo with this device. Ultimately, the AI features faded into the background after a couple of weeks with the phone.
@@ -321,6 +327,13 @@ Justin Duino / How-To Geek
 ![pixel 8pro](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2023/11/pixel-8pro.png) 
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2023/07/2023-howtogeek-ec_final.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #####  Google Pixel 8 Pro
 
@@ -345,5 +358,19 @@ The Google Pixel 8 Pro includes the search giant's latest CPU, the Tensor G3, is
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-cut-costs-improve-videos-learn-free-vimeo-editing/"><u>2024 Approved Cut Costs, Improve Videos Learn Free Vimeo Editing</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-pros-guide-to-clearing-backdrops-in-figma-design/"><u>2024 Approved The Pro's Guide to Clearing Backdrops in Figma Design</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/2024-approved-voyage-to-viral-fame-crafting-high-quality-content-as-a-travel-vlogger/"><u>2024 Approved Voyage to Viral Fame Crafting High-Quality Content as a Travel Vlogger</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/av1-contre-hevc-lequel-dominera-lavenir-du-streaming-video/"><u>AV1 Contre HEVC : Lequel Dominera L'avenir Du Streaming Vidéo ?</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/backup-and-convert-dvds-efficiently-with-winx-platinum-ripper-optimized-for-fast-gpu-processing/"><u>Backup and Convert DVDs Efficiently with WinX Platinum Ripper, Optimized for Fast GPU Processing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/best-boutique-macos-dvd-copying-software-for-macos-big-sur-in-2020-top-picks/"><u>Best Boutique MacOS DVD Copying Software for macOS Big Sur in 2020: Top Picks!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/come-comprimere-un-video-ad-alta-definizione-per-whatsapp-senza-compromettere-la-qualita-usando-winxdvd/"><u>Come Comprimere Un Video Ad Alta Definizione per WhatsApp Senza Compromettere La Qualità Usando WinXDVD</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ce-video-reach-strategic-insights-into-youtubes-tag-system-for-2024/"><u>Enhance Video Reach Strategic Insights Into YouTube's Tag System for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-xiaomi-redmi-a2plus-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Xiaomi Redmi A2+</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-elevate-your-video-game-with-these-5-youtube-thumbnail-builders/"><u>In 2024, Elevate Your Video Game with These 5 YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-lava-blaze-2-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Lava Blaze 2 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/windows-and-mac-mp46-pc/"><u>Windows & Mac MP4再生用トップ6プレイヤー - PC上で簡単な動画鑑賞</u></a></li>
+</ul></div>
 

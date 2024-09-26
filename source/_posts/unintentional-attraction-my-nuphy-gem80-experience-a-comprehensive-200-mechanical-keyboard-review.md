@@ -1,7 +1,7 @@
 ---
 title: "Unintentional Attraction: My Nuphy Gem80 Experience - A Comprehensive $200 Mechanical Keyboard Review"
-date: 2024-09-18T03:52:02.912Z
-updated: 2024-09-21T03:14:40.201Z
+date: 2024-09-23T17:06:00.227Z
+updated: 2024-09-26T00:01:18.525Z
 tags:
   - product-reviews
 categories:
@@ -23,6 +23,13 @@ thumbnail: https://thmb.techidaily.com/67c52f8f8d1e1c526acfd18d30076a8ec8c694652
 
 ![Side view of the Nuphy Gem80](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/side-view-of-the-nuphy-gem80.JPG) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Tyler Hayes / How-To Geek
 
  Nuphy has been slowly easing its way into the more “serious” and higher-end mechanical keyboards for a little bit now. (It tried to go in this direction with its [Field75](https://nuphy.com/collections/keyboards/products/field75) “gaming keyboard,” but to me, the board felt kind of cheap and I wasn’t impressed with its layout.)
@@ -39,9 +46,23 @@ Tyler Hayes / How-To Geek
 
  While there are lots of lighting options on the Gem80, from backlit keys to a glowing logo, they're all preset. You can cycle through colors, patterns, and brightness, but not do too much else. The lit up homing keys is a neat feature, but I personally didn't find myself caring about them much in practice. I did like that the keyboard is programmable using the VIA software. It's widely supported across different manufucaturers which means a lot of people should be familiar with it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  A Glorious Feel
 
 ![Metal frame of Nuphy Gem80](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/metal-frame-of-nuphy-gem80.JPG) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
 
@@ -58,16 +79,10 @@ Tyler Hayes / How-To Geek
 ![Close up view of the Nuphy Gem80 keys](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/close-up-view-of-the-nuphy-gem80-keys.JPG) 
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Tyler Hayes / How-To Geek
@@ -77,13 +92,6 @@ Tyler Hayes / How-To Geek
  It is a bit of a bummer that the keyboard starts at $149.95 for the wired version with no switches or keycaps. Thankfully, to get a wireless model with all the needed pieces, the price only jumps about $50\. If you’re new to mechanical keyboards and are on the fence, you might want to glance at the [Nuphy Halo75 V2](https://nuphy.com/collections/keyboards/products/halo75-v2-qmk-via-wireless-custom-mechanical-keyboard) pre-order. It might hit the sweet spot for an already assembled board with future customization.
 
 ![Nuphy Gem80](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/04/cleanshot-2024-04-23-at-14-34-55-2x.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #####  Nuphy Gem80
 
@@ -164,5 +172,22 @@ Expand
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-skills.techidaily.com/2024-approved-streamselect-an-alternative-to-dacast/"><u>2024 Approved StreamSelect An Alternative to DaCast</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/conversing-cars-into-customization-masterpieces-via-chatgpt/"><u>Conversing Cars Into Customization Masterpieces via ChatGPT</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/enhance-your-online-presence-using-manycam-advanced-live-streaming-application-and-virtually-instant-webcam-solution/"><u>Enhance Your Online Presence Using ManyCam - Advanced Live Streaming Application & Virtually Instant Webcam Solution</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/enhanced-webcam-integration-with-manycam-plugin-for-adobe-connect/"><u>Enhanced Webcam Integration with ManyCam Plugin for Adobe Connect</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explore-premium-manycam-substitutes-enhance-your-live-broadcasts-with-advanced-virtual-camera-features/"><u>Explore Premium ManyCam Substitutes: Enhance Your Live Broadcasts with Advanced Virtual Camera Features</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explore-the-ultimate-live-video-solutions-with-virtual-camcorders-like-manycam/"><u>Explore the Ultimate Live Video Solutions with Virtual Camcorders Like ManyCam</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-best-screen-recorders-for-schedule-recording-and-how-to/"><u>In 2024, Best Screen Recorders for Schedule Recording & How-To</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/iosiphoneipadipad/"><u>IOSデバイス間でスムーズに情報共有するための同期方法｜iPhoneとiPadの統合｜パソコンとiPad同期テクニック</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/live-streaming-made-easy-with-manycam-advanced-video-editing-and-background-changing-app/"><u>Live Streaming Made Easy with ManyCam - Advanced Video Editing and Background Changing App</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/live-streaming-mastery-ultimate-guide-to-manycam-professional-webcam-software/"><u>Live Streaming Mastery: Ultimate Guide to ManyCam, Professional Webcam Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/maximize-your-live-streaming-potential-with-advanced-webcam-tools-and-extensions-including-manycam-for-enhanced-camstumble-performance/"><u>Maximize Your Live Streaming Potential with Advanced Webcam Tools & Extensions, Including ManyCam for Enhanced Camstumble Performance.</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/top-5-chrome-plug-ins-for-effortless-facebook-video-downloads/"><u>Top 5 Chrome Plug-Ins for Effortless Facebook Video Downloads</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/zero-cost-techniques-for-video-and-text-combination-for-2024/"><u>Zero-Cost Techniques for Video and Text Combination for 2024</u></a></li>
+</ul></div>
 
