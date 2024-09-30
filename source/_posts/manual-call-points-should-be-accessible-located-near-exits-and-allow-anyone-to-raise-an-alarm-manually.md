@@ -1,7 +1,7 @@
 ---
 title: Manual Call Points Should Be Accessible, Located Near Exits, and Allow Anyone to Raise an Alarm Manually.
-date: 2024-09-18T23:03:54.039Z
-updated: 2024-09-26T03:11:07.129Z
+date: 2024-09-29T17:53:19.393Z
+updated: 2024-09-30T16:05:04.142Z
 tags:
   - product-reviews
 categories:
@@ -44,6 +44,13 @@ The Origin PC EON16-X boasts premier gaming power with an understated and custom
 [$3400 at Origin PC](https://www.anrdoezrs.net/links/3607085/type/dlg/sid/UUhtgUeUpU2004606/https://www.originpc.com/gaming/laptops/eon16-x/) 
 
 [_How We Test and Review Products_](https://vp-tips.techidaily.com/swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Price and Availability** 
 
@@ -122,16 +129,10 @@ Bill Loguidice / How-To Geek
 ![Origin PC EON16-X Laptop open a table top running Fortnite](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-49-18.jpg) 
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
@@ -141,6 +142,13 @@ Bill Loguidice / How-To Geek
  The keyboard performed well for gaming purposes, with good responsiveness to quick presses. Of course, it can't come anywhere near the performance of a good external mechanical keyboard like my preferred [Logitech G915 Lightspeed](https://www.amazon.com/Logitech-Wireless-Mechanical-Gaming-Keyboard/dp/B07NY9ZT92?tag=hotoge-20&ascsubtag=UUhtgUeUpU2004606&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Forigin-pc-eon16-x-laptop-review%2F&asc%5Fcampaign=Authority), but it was never an issue when I needed to use it for a competitive game session.
 
 ![Origin PC EON16-X Laptop open on a table top with a close up of the keyboard and trackpak](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-41-51.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
 
@@ -165,10 +173,10 @@ Bill Loguidice / How-To Geek
 ![Origin PC EON16-X Laptop open on a table top next to its AC adapter](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-25-03.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
@@ -178,13 +186,6 @@ Bill Loguidice / How-To Geek
  Where Origin PC does let down its hair, so to speak, is with a customizable display backing. You can choose from 19 different HD UV prints for $30 each, or a custom HD UV print for $140\. Mine came with the Waves 3 print, which has color that really pops and a nice tactile feel to the white lines. In another nice touch, Origin PC includes the same HD UV print design as a Windows desktop wallpaper.
 
 ![Origin PC EON16-X Laptop closed on a table top showing the Waves 3 panel print](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-08-02-21-08-04.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
 
@@ -202,22 +203,29 @@ Bill Loguidice / How-To Geek
 
  There's not much Origin PC adds to the basic Windows 11 Home operating system installation, so there are no real worries about bloatware. The most useful inclusion is the aforementioned Origin Control Center, which lets you monitor and modify general, performance, lighting, battery, display, and system settings. It's not as robust as some of the offerings from other companies, but I appreciated that the user interface for things like adjusting the keyboard and light bar lighting was straightforward and not overwhelming.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Input and Output: Ports for Every Need and Few Other Frills** 
 
 ![Rear of Origin PC EON16-X Laptop open on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-29-08.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
 
  The EON16-X has a robust port selection. On the right side is a USH-I full-size SD card reader and two USB-A 3.2 Gen 1 ports. On the left side is a 3.5mm combination microphone and headset audio port, USB-C 3.2 Gen 1 port, another USB-A 3.2 Gen 1 port, and a Kensington Lock Port. At the rear is a USB-C Thunderbolt 4/USB 4 port with power delivery, a full-size HDMI 2.1 port, Ethernet port, and DC power port. Using the Thunderbolt 4 ports you can drive up to two 4K displays or one 8K display.
 
 ![Right side of open Origin PC EON16-X Laptop on a table top](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/2024-07-28-16-29-41.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Bill Loguidice / How-To Geek
 
@@ -231,25 +239,11 @@ Bill Loguidice / How-To Geek
 
 ![Origin PC EON16-X Laptop webcam example image showing a man in a chair](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/08/win_20240806_22_54_33_pro.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Bill Loguidice / How-To Geek
 
 A sample image from the full HD webcam.
 
  There's no Windows Hello or fingerprint security validation, so you're limited to entering a passcode from the keyboard. This is yet another example of how this is designed as a relatively no-frills laptop primarily dedicated to delivering top-notch gaming performance.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Should You Buy the Origin PC EON16-X Laptop?** 
 
@@ -282,24 +276,20 @@ The Origin PC EON16-X boasts premier gaming power with an understated and custom
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-gain-cost-free-visuals-from-selective-4-youtube-feeds/"><u>[New] 2024 Approved Gain Cost-Free Visuals From Selective 4 YouTube Feeds</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-acoustic-additions-for-your-chat-status/"><u>[New] Acoustic Additions for Your Chat Status</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-fbx-filming-made-simple-a-step-by-step-approach-for-2024/"><u>[Updated] FBX Filming Made Simple A Step-by-Step Approach for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-advanced-tips-for-nvidia-recorded-content/"><u>[Updated] In 2024, Advanced Tips for NVIDIA Recorded Content</u></a></li>
-<li><a href="https://techtrends.techidaily.com/2024s-top-rated-learning-platforms-a-comprehensive-review/"><u>2024’S Top-Rated Learning Platforms: A Comprehensive Review</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/detailed-procedure-for-sending-time-synchronized-srt-files-online-for-2024/"><u>Detailed Procedure for Sending Time-Synchronized SRT Files Online for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/effective-file-system-in-windows-unveiled-max-156/"><u>Effective File System in Windows Unveiled (Max 156)</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/free-download-how-to-access-e-books-at-no-cost/"><u>Free Download: How to Access E-Books at No Cost</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/has-support-ended-for-this-product-or-service/"><u>Has Support Ended For This Product or Service?</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-on-itel-a05s-by-drfone-android/"><u>In 2024, How to Bypass FRP on Itel A05s?</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-screen-protectors-that-enhance-vr-filming/"><u>In 2024, Screen Protectors That Enhance VR Filming</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mac-conversion-guide-how-to-turn-your-pdfs-into-epub-format/"><u>Mac Conversion Guide: How to Turn Your PDFs Into EPUB Format</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/master-the-art-of-ebook-creation-with-these-essential-5-strategies-for-authors/"><u>Master the Art of eBook Creation with These Essential 5 Strategies for Authors</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/master-your-mac-experience-expert-tips-and-tricks/"><u>Master Your Mac Experience: Expert Tips and Tricks</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On OnePlus Ace 2 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/seamlessly-enjoy-your-digital-library-how-to-use-an-app-for-kindle-on-ios-devices/"><u>Seamlessly Enjoy Your Digital Library: How to Use an App for Kindle on iOS Devices</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/spark-growth-innovative-techniques-for-a-blazing-digital-presence-online/"><u>Spark Growth: Innovative Techniques for a Blazing Digital Presence Online</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-converting-html-files-into-mobi-for-seamless-reading-on-kindle/"><u>Step-by-Step Guide: Converting HTML Files Into MOBI for Seamless Reading on Kindle</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-proper-uninstallation-of-software-on-your-computer/"><u>Step-by-Step Guide: Proper Uninstallation of Software on Your Computer</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/10-proven-methods-for-converting-your-dvd-files-into-mp4-format-on-pc-or-mac/"><u>10 Proven Methods for Converting Your DVD Files Into MP4 Format on PC or Mac</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725288369491-ai-6/"><u>AI 비디오를 변환하는 시기의 6가지 선두에게서 최고 업스케일링 퍼포머: 도구, 기능, 비교</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/digital-minds-may-displace-traditional-jobs/"><u>Digital Minds May Displace Traditional Jobs</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/free-picture-perfection-the-finest-10-sites-reviewed-for-2024/"><u>Free Picture Perfection The Finest 10 Sites Reviewed for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-enable-gpu-encoding-in-handbrake-if-cuda-is-not-available/"><u>How to Enable GPU Encoding in HandBrake If CUDA Is Not Available</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-to-other-iphone-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE To Other iPhone? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-tecno-camon-20-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Tecno Camon 20 | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-iphone-tutorial-snap-and-stream-simultaneously/"><u>In 2024, IPhone Tutorial Snap and Stream Simultaneously</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/livestreaming-pre-recorded-content-seamlessly-on-fb-for-2024/"><u>Livestreaming Pre-Recorded Content Seamlessly on FB for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mejorando-la-experiencia-de-visualizacion-con-ia-fotograma-por-fotograma-aumento-y-transiciones-sin-fuga/"><u>Mejorando La Experiencia De Visualización Con IA: Fotograma Por Fotograma Aumento Y Transiciones Sin Fuga</u></a></li>
+<li><a href="https://games-able.techidaily.com/precision-power-supplies-s-ps5-dualsense/"><u>Precision Power Supplies 'S PS5 DualSense</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/quick-and-high-quality-conversion-of-mkv-files-to-xvid-format-on-windows-10/"><u>Quick and High-Quality Conversion of MKV Files to Xvid Format on Windows 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/schlusselinformationen-fur-die-anschaffung-des-winx-dvd-video-programms-kauf-faq/"><u>Schlüsselinformationen Für Die Anschaffung Des WinX DVD Video-Programms - Kauf FAQ</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-roadmap-to-engaging-youtube-trailers-through-filmora/"><u>The Roadmap to Engaging YouTube Trailers Through Filmora</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725290305294-winxdvd/"><u>WinXDVD 소프트웨어를 제대로 사용하는 데 도움이 되는 전문가 수락 - 강력한 교육기</u></a></li>
 </ul></div>
 

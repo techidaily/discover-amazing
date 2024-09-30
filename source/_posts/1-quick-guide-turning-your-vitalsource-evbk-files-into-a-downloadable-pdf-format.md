@@ -1,7 +1,7 @@
 ---
 title: "1. Quick Guide: Turning Your VitalSource eVBK Files Into a Downloadable PDF Format"
-date: 2024-09-22T21:45:06.108Z
-updated: 2024-09-26T01:00:11.304Z
+date: 2024-09-29T16:16:11.062Z
+updated: 2024-09-30T16:07:21.928Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/a5249e9b13fd437412102feed5c7841b8ccf98fdf0188fbbf3a215fd35680a08.JPG
@@ -49,16 +49,16 @@ It will pop up a new window asking you to fill in the range of the pages you wan
 
 ![choose the page range](http://www.epubor.com/images/uppic/choose-the-page-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The print window will pop up. Now you can fill in the copies, pages you want to print. At the buttom, you will see PDF options, click on "PDF" and select ”Save as PDF" at the dropdown list.
 
 ![save vbk as pdf](http://www.epubor.com/images/uppic/save-as-pdf.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Fill in the "Title", "Author", and choose the storages place for the converted PDF file. Then click on " Save" to generate the PDF file.
 
@@ -69,10 +69,17 @@ Now you get your VBK file converted to PDF. Since there may be print limitations
 ![save vbk as pdf](https://www.epubor.com/images/pdf-splitter-merger.htmlscreen1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Convert VBK to PDF on Windows
@@ -94,10 +101,10 @@ Open the VitalSource Bookshelf and download the book you want to convert. Open t
 ![print vbk to pdf](http://www.epubor.com/images/uppic/windows-print-VBK.png)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The print preview window will pop up. You just have to click on "print" to go to the next step. 
@@ -112,14 +119,14 @@ After you have clicked on "Print", the doPDF will save this file as PDF. You can
 
 ![print vbk to pdf on windows](http://www.epubor.com/images/uppic/print-vbk-to-pdf-on-windows.png)
 
-As there may be print limitation, you have to print the pages one by one. After all pages have been printed, you can use Epubor PDF & Merger & Splitter to merge all pdf files to one book. 
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+As there may be print limitation, you have to print the pages one by one. After all pages have been printed, you can use Epubor PDF & Merger & Splitter to merge all pdf files to one book. 
 
 ### Convert VBK to PDF with Epubor VitalSource Downloader
 
@@ -151,13 +158,6 @@ You just need to fill in your VitalSource account information to sign in your Vi
 
 ![Vitalsource downloader login](https://www.epubor.com/images/uppic/vitalsource-downloader-interface.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 When you log in, you will see all books you purchased from VitalSource website. If you found that not all purchased books are displayed in this library, close the software and restart it again please.
 
 #### Step 3: Download VitalSource Bookself to PDF 
@@ -171,6 +171,19 @@ When the downloading is started, the processing bar will show you the process. P
 When the downloading is finished, it will pop up the output location which stores the downloaded PDF or EPUB books. You can also click on the blue folder icon, it will show you the output path.
 
 ![Downloaded pdf](http://www.epubor.com/images/uppic/downloaded-pdf.png)Instead of vbk file, you will get the PDF or EPUB file downloaded to your computer according to the book original formats. If the book you purchased is Page-Fidelity Textbook (PDF), the book you downloaded will be in PDF. If the book you purchased is Reflowable Textbook (EPUB), the book you downloaded will be in epub. In this situation, you need to convert the epub to PDF with [Epubor eBook converter](https://tools.techidaily.com/epubor/ebook-converter/). 
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  You can watch the video tutorial to know how to convert the VitalSource vbk to PDF. 
 
@@ -188,13 +201,6 @@ Suggested reading:
 * [Print VitalSource eTextbooks to PDF](https://tools.techidaily.com/epubor/products/)
 
 ![author](http://www.epubor.com/images/uppic/iris.png)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Iris Yan](https://www.facebook.com/iris.yan.16718) has been a passionate member of Epubor since 2017\. Her mission is to enhance your ebook reading experience by sharing insightful tips and tricks. Join her on a journey towards reading excellence today!
 
@@ -550,20 +556,16 @@ Leave a comment
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-the-price-tag-of-a-million-viewed-youtube-video/"><u>[New] 2024 Approved The Price Tag of a Million-Viewed YouTube Video</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-unleashing-the-best-video-footage-with-gopro/"><u>[New] 2024 Approved Unleashing the Best Video Footage with GoPro</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-advanced-techniques-for-professional-mac-burned-discs/"><u>[New] Advanced Techniques for Professional Mac-Burned Discs</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-analyzing-brightness-boost-in-hd-and-its-hdr-impact/"><u>[New] Analyzing Brightness Boost in HD and Its HDR Impact</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-spotlight-on-the-5-most-advanced-game-streaming-webcams/"><u>[New] In 2024, Spotlight On The 5 Most Advanced Game Streaming Webcams</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-complete-guide-to-iphone-speech-recordings/"><u>[Updated] 2024 Approved The Complete Guide to iPhone Speech Recordings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-discover-and-collect-free-instagram-filters-through-search-for-2024/"><u>[Updated] Discover & Collect Free Instagram Filters Through Search for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effortlessly-copy-and-convert-dvd-movies-into-macbook-format-enabling-smooth-full-screen-playback-experience/"><u>Effortlessly Copy and Convert DVD Movies Into MacBook Format, Enabling Smooth Full Screen Playback Experience</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/immediate-solution-how-to-restore-your-iphone-display-from-a-blackout/"><u>Immediate Solution: How to Restore Your iPhone Display From a Blackout!</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Tecno Spark 20 Pro | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resolving-iphones-inability-to-connect-with-software-update-servers-a-comprehensive-fix/"><u>Resolving iPhone's Inability to Connect with Software Update Servers - A Comprehensive Fix!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/seamless-media-transfer-expert-insights-on-using-macx-dvd-ripper-pro-to-safely-rip-protected-discs-onto-apple-gadgets/"><u>Seamless Media Transfer: Expert Insights on Using MacX DVD Ripper Pro to Safely Rip Protected Discs Onto Apple Gadgets</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/the-ultimate-insights-into-effective-video-editing-strategies/"><u>The Ultimate Insights Into Effective Video Editing Strategies</u></a></li>
-<li><a href="https://data-recovery.techidaily.com/troubleshooting-phasmophobia-issues-latest-fixes-for-gamers/"><u>Troubleshooting Phasmophobia Issues - Latest Fixes for Gamers</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unlock-the-full-potential-of-your-iphone-x-essential-strategies-for-enhanced-usage/"><u>Unlock the Full Potential of Your iPhone X: Essential Strategies for Enhanced Usage</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-highlighted-10-faceshaping-tech-on-phones/"><u>[Updated] Highlighted 10 Faceshaping Tech on Phones</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-simplifying-google-meet-on-android-devices/"><u>2024 Approved Simplifying Google Meet on Android Devices</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-iphone-15-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iPhone 15 Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/photographys-top-10-digital-notebooks-for-smartphones/"><u>Photography's Top 10 Digital Notebooks for Smartphones</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/revolutionize-your-tech-experience-with-toms-hardware-solutions/"><u>Revolutionize Your Tech Experience with Tom's Hardware Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-10-reliable-tools-to-convert-mkv-to-mp4-on-pc-and-mac-including-web-based-options/"><u>Top 10 Reliable Tools to Convert MKV to MP4 on PC and Mac, Including Web-Based Options</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transformez-vos-fichiers-avchd-m2ts-en-mp4-sans-compromettre-la-qualite-top-5-methodes/"><u>Transformez Vos Fichiers AVCHD M2TS en MP4 Sans Compromettre La Qualité - Top 5 Méthodes</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-for-fixing-error-code-0xc1900208-on-your-windows-10-system-resolved/"><u>Troubleshooting Tips for Fixing Error Code 0xC1900208 on Your Windows 10 System [RESOLVED]</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ultimate-guide-transforming-your-gopro-footage-from-high-efficiency-video-coding-hevc-to-standard-dynamic-range-sdr/"><u>Ultimate Guide: Transforming Your GoPro Footage From High-Efficiency Video Coding (HEVC) to Standard Dynamic Range (SDR)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-the-appeal-why-do-cybercriminals-focus-on-chatgpt-usernames-and-passwords/"><u>Understanding the Appeal: Why Do Cybercriminals Focus on ChatGPT Usernames and Passwords?</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winx-dvd-ripper-mac-edition-effizientes-dvd-konvertieren-fur-apple-gerate/"><u>WinX DVD Ripper Mac Edition - Effizientes DVD-Konvertieren Für Apple Geräte</u></a></li>
 </ul></div>
 
