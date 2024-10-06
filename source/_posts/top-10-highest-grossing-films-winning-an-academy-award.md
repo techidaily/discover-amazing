@@ -1,7 +1,7 @@
 ---
 title: Top 10 Highest-Grossing Films Winning an Academy Award
-date: 2024-09-27T17:07:13.271Z
-updated: 2024-09-30T16:34:17.154Z
+date: 2024-09-30T16:18:35.390Z
+updated: 2024-10-05T20:19:21.526Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/e3f7f8209eab3a8810779d3b9fd5af99ac53d2f641a80f57ad3f83729c4706c2.jpg
@@ -34,13 +34,6 @@ Movies always play a big part in our digital life, some of which let us burst in
 
 ![2023 Academy winner](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/2018-oscar-prediction.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Table of Contents
 
 * [List of Top 10 Best Academy Award Movies](https://tools.techidaily.com/macxdvd/products/)
@@ -59,36 +52,35 @@ Who won at the [95th Academy Awards 2023](https://tools.techidaily.com/macxdvd/p
 5. Best Actro: waiting for the announcement
 6. Best Actress: waiting for the announcement
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## List of Top 10 Best Academy Award Movies
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### No.1: Green Book (2019)
 
 ![2020 Oscars Movie - Green Book](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/2019-oscars-green-book.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 2022 Oscars Movie - Green Book
 
 It's a big surprise that Green Book wins the Best Picture in 2024 91st Academy Award. Besides that, it also pockets 2 other awards, including Original Screenplay and Actor in A Supporting Role. What this movie talk about? It's a story of a working-class Italian-American bouncer becomes the driver of an African-American classical pianist on a tour of venues through the 1960s American South. Confronted with racism, danger-as well as unexpected humanity and humor-they are forced to set aside differences to survive and thrive on the journey of a lifetime.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### No.2: The Shape of Water (2018)
 
@@ -98,6 +90,13 @@ It's a big surprise that Green Book wins the Best Picture in 2024 91st Academy A
 
 The Shape of Water led the 2020 Academy awards with Best Picture and Best Director as expected, beating Dunkirk, Get Out, Three Billboards Outside Ebbing, Missouri and other big names. The Oscar awarded movie gets an approval rating of 92% at Rotten Tomatoes. Those who missed the movie in the theater can wait for the DVD which will be released on March 13, 2018.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### No.3: La La Land (2017)
 
 ![best oscar movies 2017](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/lalaland.jpg) 
@@ -105,13 +104,6 @@ The Shape of Water led the 2020 Academy awards with Best Picture and Best Direct
 best oscar movies 2017
 
 Damien Chazelle's "La La Land" failed to edge out Arrival, Moonlight, Manchester by the Sea to win the Best Picture among the best Oscar movies nominees in 2017\. But it is still one of the top ten Oscar awarded movies. The [romantic movie](https://tools.techidaily.com/macxdvd/products/) is part of a grand tradition but goes beyond the movies like Singin' in the Rain, Moulin Rouge, etc. Most media regard it as the more deserving than top Oscar-winning movie and the [best Hollywood movies](https://tools.techidaily.com/macxdvd/products/)in 2016 with its outstanding artistic designing, photographing, light, costume, sweet soundtracks, etc. 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### No.4: Titanic (1997)
 
@@ -128,13 +120,6 @@ Note: You can take advantages of a top Oscar movie downloader such as MacX Video
 ### NO. 5: Forrest Gump (1994)
 
 ![best oscar movies - forrest gump](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/forrest-gump.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 best oscar movies - forrest gump
 
@@ -176,16 +161,16 @@ best oscar movies \_ crouching tiger, hidden dragon
 
 If you want to know more about the Chinese culture and kungfu, Crouching Tiger, Hidden Dragon is absolutely the solid choice. This Ang Lee-directed 2000 film won him the Oscar for Best Foreign Language Film and three other Academy Awards. In many ways, Crouching Tiger Hidden Dragon is pure Wu Xia, containing formulaic elements such as honourable warriors, swordswomen, powerfulswords, and often magic and mythical beasts. Quite simply, Crouching Tiger has everything. It is beautiful, breathtaking and deeply moving.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### No. 10: Finding Nemo (2003)
 
 ![best oscar movies - finding nemo](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/nemo.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 best oscar movies - finding nemo
 
@@ -258,6 +243,13 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Top Best Movies to Rent And Solution to Copy Top DVD Rentals](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
@@ -265,6 +257,13 @@ Related Articles
 [Top Steven Spielberg Movies List that Stands the Test of Time](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [List of Top 10 Hollywood Movies to Watch of All Time](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -284,11 +283,25 @@ Related Articles
 
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Hot Products
 
 * [MacX DVD Ripper Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tips and Tricks
 
@@ -297,13 +310,6 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Data Transfer >>](https://tools.techidaily.com/macxdvd/products/)
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Company
 
@@ -335,18 +341,17 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-low-cost-recording-choices-top-11-vlogger-essentials/"><u>[Updated] 2024 Approved Low-Cost Recording Choices Top 11 Vlogger Essentials</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-5-best-mid-range-gaming-keyboards-for-enthusiasts-for-2024/"><u>[Updated] 5 Best Mid-Range Gaming Keyboards for Enthusiasts for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-elevate-video-conferencing-skills-google-meet-aesthetics-guide/"><u>[Updated] Elevate Video Conferencing Skills Google Meet Aesthetics Guide</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-digital-subtitle-producer/"><u>[Updated] In 2024, Digital Subtitle Producer</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Nubia Red Magic 9 Pro+ | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/a-deep-dive-into-the-kobo-forma-a-commitment-to-quality-reading-experience/"><u>A Deep Dive Into the Kobo Forma - A Commitment to Quality Reading Experience</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/descargar-macx-mediatrans-en-linea-con-rebajas-exclusivas/"><u>Descargar MacX MediaTrans en Línea Con Rebajas Exclusivas</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/download-the-official-top-7-mac-compatible-media-converters-today/"><u>Download the Official Top 7 Mac-Compatible Media Converters Today!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/dvd-daten-schutzen-und-sichern-effiziente-techniken-zur-vermeidung-von-kopieren/"><u>DVD-Daten Schützen Und Sichern: Effiziente Techniken Zur Vermeidung Von Kopieren</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effektivste-methode-zum-hochladen-von-streaming-videodateien-auf-ihren-mac/"><u>Effektivste Methode Zum Hochladen Von Streaming-Videodateien Auf Ihren Mac</u></a></li>
-<li><a href="https://techidaily.com/how-do-i-reset-my-tecno-phantom-v-fold-phone-without-technical-knowledge-drfone-by-drfone-reset-android-reset-android/"><u>How do I reset my Tecno Phantom V Fold Phone without technical knowledge? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-vivo-y56-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Vivo Y56 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/streamlining-video-uploads-to-youtube-a-step-by-step-process-for-optimizing-and-sharing-quicktime-files/"><u>Streamlining Video Uploads to YouTube: A Step-by-Step Process for Optimizing and Sharing QuickTime Files</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-acer-laptop-keyboard-not-working-windows-1111/"><u>[Solved] Acer Laptop Keyboard Not Working Windows 11/11</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-pixlr-essentials-10-pro-tips-to-transform-your-images/"><u>[Updated] Pixlr Essentials 10 Pro Tips to Transform Your Images</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722601786644-2024s-best-selection-of-extended-format-desk-mouse-covers-find-your-perfect-match/"><u>2024'S Best Selection of Extended-Format Desk Mouse Covers: Find Your Perfect Match!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/everything-you-need-to-know-about-lock-screen-settings-on-your-samsung-galaxy-f14-5g-by-drfone-android/"><u>Everything You Need to Know about Lock Screen Settings on your Samsung Galaxy F14 5G</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-verifying-realness-in-instagrams-visual-identity-expressions/"><u>In 2024, Verifying Realness in Instagram's Visual Identity Expressions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/the-ultimate-guide-to-the-best-5-epub-viewer-programs-on-a-mac/"><u>The Ultimate Guide to the Best 5 EPUB Viewer Programs on a Mac</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-learning-applications-boost-your-education-with-digital-tools/"><u>Top Learning Applications: Boost Your Education with Digital Tools</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-rated-book-formatter-software-seamlessly-convert-epubpdfmobi-files/"><u>Top Rated Book Formatter Software: Seamlessly Convert EPUB/PDF/Mobi Files</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/undoing-the-updates-how-to-restore-older-firmware-on-your-kindle-2017-edition/"><u>Undoing the Updates: How to Restore Older Firmware on Your Kindle (2017 Edition)</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/unlock-your-chromebooks-potential-how-to-install-linux-for-2024/"><u>Unlock Your Chromebooks Potential How to Install Linux for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/unveiling-social-network-regulations-can-you-share-videos-in-2024/"><u>Unveiling Social Network Regulations Can You Share Videos, In 2024</u></a></li>
 </ul></div>
 

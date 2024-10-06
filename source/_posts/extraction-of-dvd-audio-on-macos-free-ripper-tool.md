@@ -1,7 +1,7 @@
 ---
 title: Extraction of DVD Audio on macOS - Free Ripper Tool
-date: 2024-09-26T17:34:03.913Z
-updated: 2024-09-30T16:15:03.750Z
+date: 2024-09-30T22:48:30.189Z
+updated: 2024-10-05T19:37:08.485Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/90c2e01727fc918de7950373ab7790d2b6bd79b92f560dcc1472e9356e8fe972.png
@@ -32,23 +32,17 @@ _Résumé : découvrez comment extraire gratuitement l'audio d'un DVD avec une q
 
 Voulez-vous jouer la musique de fond du DVD sur vos lecteurs de musique, comme le lecteur MP3, les lecteurs MP4, le téléphone cellulaire, l'iPad, l'iPod, l'iPhone, etc ? Peut-être vous a-t-on suggéré de ripper un DVD audio en MP3 à l'aide de VLC media player, mais la vérité est que toute la procédure d'exploitation est beaucoup plus compliquée qu'il n'y paraît. Vous avez envie d'essayer une solution plus simple ? Cet article présente un **ripper professionnel mais gratuit de DVD audio pour Mac** pour vous permettre de ripper sans sueur l'audio de DVD librement, de sorte que vous pouvez profiter de la musique de fond de DVD sur votre gadget où que vous alliez.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Table des matières
 
 * [Part 1: Meilleur ripper DVD audio gratuit pour Mac recommandé](https://tools.techidaily.com/macxdvd/products/) ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/icon4.png)
 * [Part 2: Extraire l'audio d'un DVD avec Open Source - DVD Audio Extractor](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * [Part 3: Ripper gratuitement les DVD audio avec VLC Mac](https://tools.techidaily.com/macxdvd/products/)
 
@@ -70,13 +64,6 @@ Dans la zone du format de sortie, sélectionnez le format cible "to Music". Il y
 
 ![Rip DVD audio en musique MP3 sur Mac Gratuit](https://www.macxdvd.com/tutorial-fr/../mac-dvd-video-converter-how-to/article-image/mdrmfe-0320-audio.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Rip DVD audio en musique MP3 sur Mac Gratuit
 
 **Étape 3\. Choisissez le dossier de sortie.**
@@ -93,13 +80,6 @@ MacX DVD Ripper Pro, le meilleur ripper DVD à l'audio est conçu pour ripper DV
 
 [Télécharger](https://tools.techidaily.com/macxdvd/products/) [Télécharger](https://tools.techidaily.com/macxdvd/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Partie 2: Extraire l'audio d'un DVD avec Open Source - DVD Audio Extractor
 
 Comme un ajout, ici, nous vous recommandons également d'avoir un essai sur une autre source ouverte DVD audio ripper - DVD Audio Extractor, qui est un outil largement célèbre pour extraire gratuitement audio du disque DVD, Blu Ray disque, DVD-Audio disque et les enregistrer en tant que MP3, OGG, Wave ou FLAC formats de fichier. Il fonctionne désormais de manière transparente avec Mac OS X 10.9 Mavericks. Pour les utilisateurs de Yosemite, El Capitan et macOS Sierra, il est toujours conseillé d'extraire l'audio d'un DVD sur Mac avec le premier logiciel gratuit de conversion de DVD.
@@ -113,13 +93,6 @@ Après avoir ripper DVD en MP3, AAC etc. avec le ripper DVD audio gratuit pour M
 ## Partie 3: Ripper gratuitement des DVD audio avec VLC Mac
 
 VLC est souvent utilisé pour convertir gratuitement les formats vidéo et extraire l'audio des vidéos. On remarque rarement que VLC est aussi très performant pour l'extraction de DVD. VLC pour MacOS peut aussi extraire des fichiers audio d'un disque DVD. De plus, l'opération est très simple : vous pouvez facilement le faire, quel que soit votre niveau de compétence. Notez que VLC ne peut pas gérer les DVD commerciaux cryptés. Vérifiez votre disque DVD d'entrée avant de vous lancer. Pour les DVD protégés par des droits d'auteur, revenez à MacX DVD Ripper. Quant aux DVD non protégés faits maison, laissez VLC s'en charger !
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Comment utiliser VLC Mac pour extraire l'audio d'un disque DVD
 
@@ -145,6 +118,13 @@ Articles associés:
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Comment ripper des DVD protégés ou non sur le disque dur de votre Mac (y compris Big Sur) ?](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic5.jpg)
@@ -153,31 +133,44 @@ Articles associés:
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [Comment changer la région d'un DVD sur Mac pour lire les DVD sans région?](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374819">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [3 façons de lire un DVD sur Mac (MacBook Pro/Air, iMac, etc.)](https://www.macxdvd.com/tutorial-fr/comment-lire-un-dvd-sur-mac.htm) 
 
 ![](https://www.macxdvd.com/tutorial-fr/../image-style/new-seo/pic2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Téléchargement de la meilleure alternative à PowerDVD Mac pour une lecture complète sur Mac](https://tools.techidaily.com/macxdvd/products/) 
 
 ![Digiarty Software](https://www.macxdvd.com/tutorial-fr/../icon/logo.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Digiarty Software, Inc. (MacXDVD) est un leader dans la fourniture d'applications logicielles multimédia stables pour les utilisateurs du monde entier depuis sa création en 2006.
 
@@ -188,16 +181,10 @@ Digiarty Software, Inc. (MacXDVD) est un leader dans la fourniture d'application
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Support
@@ -205,6 +192,13 @@ Digiarty Software, Inc. (MacXDVD) est un leader dans la fourniture d'application
 * [FAQ >>](https://tools.techidaily.com/macxdvd/products/)
 * [Guide >>](https://tools.techidaily.com/macxdvd/products/)
 * [Solutions >>](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Contact
 
@@ -233,17 +227,16 @@ Apple, le logo Apple, Mac, iPhone, iPad, iPod et iTunes sont des marques dépos�
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-exposing-the-accelerating-path-of-8-youtube-content-creators/"><u>[New] 2024 Approved Exposing the Accelerating Path of 8 YouTube Content Creators</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/raft-the-ultimate-outro-with-pro-maker-advice/"><u>[New] Craft the Ultimate Outro with Pro Maker Advice</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-proven-techniques-to-enhance-engagement-and-interaction/"><u>[Updated] In 2024, Proven Techniques to Enhance Engagement and Interaction</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-step-by-step-guide-to-editing-and-optimizing-instagram-footage-for-2024/"><u>[Updated] Step-by-Step Guide to Editing and Optimizing Instagram Footage for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlock-professional-techniques-for-coloring-gopro-videos/"><u>2024 Approved Unlock Professional Techniques for Coloring GoPro Videos</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-1011pcheic/"><u>解锁Windows 10/11PC中HEIC图像的访问与浏览方法</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/easy-to-use-3sat-downloader-for-hd-videos-download-in-popular-formats-such-as-flv-mov-avi/"><u>Easy-to-Use 3Sat Downloader for HD Videos: Download in Popular Formats Such as FLV, MOV, AVI</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-from-novice-to-pro-periscope-stream-mastery/"><u>In 2024, From Novice to Pro Periscope Stream Mastery</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/kostenlose-losung-zum-andern-von-dvd-vob-in-avi-entdecken-sie-den-power-der-winx-video-konvertierung/"><u>Kostenlose Lösung Zum Ändern Von DVD Vob in AVI: Entdecken Sie Den Power Der WinX Video Konvertierung!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/secure-your-2023-bargain-save-15-on-winx-dvd-ripper-platinum-using-this-official-discount-couppon/"><u>Secure Your 2023 Bargain: Save $15 on WinX DVD Ripper Platinum Using This Official Discount Couppon!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unlocking-the-secrets-of-dvd-resolution-informative-guide/"><u>Unlocking the Secrets of DVD Resolution - Informative Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unveiling-lgs-monitor-magic-a-comprehensible-review-of-4k-tech-for-2024/"><u>Unveiling LG's Monitor Magic A Comprehensible Review of 4K Tech for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-snapshot-strategies-capturing-win10-gaming-excellence/"><u>[New] 2024 Approved Snapshot Strategies Capturing Win10 Gaming Excellence</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-mastering-tunes-with-mac-studios-for-2024/"><u>[New] Mastering Tunes with Mac Studios for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-unraveling-the-secrets-of-recording-hulu-across-computersmobile-for-2024/"><u>[New] Unraveling the Secrets of Recording Hulu Across Computers/Mobile for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725290565611-dvd/"><u>家庭でのDVDコピーが上手く行かず、無料ソフトのエラーをどう修正するか？ 詳しい指南記事</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/best-ai-photography-refining-tools-for-revitalizing-dated-images-ranking-the-10-leading-innovators-of-clarity-enhancement/"><u>Best AI Photography Refining Tools for Revitalizing Dated Images: Ranking the 10 Leading Innovators of Clarity Enhancement</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725289925437-digiarty-dvd/"><u>Digiartyソフトウェア専用サポート - DVDコピーと動画変換で最適なソリューションを</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/free-mac-dvd-converter-effortless-transformation-of-dvds-to-hd-formats-like-mp4-mov-and-more/"><u>Free Mac DVD Converter: Effortless Transformation of DVDs to HD Formats Like MP4, MOV & More!</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-infinix-note-30-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Infinix Note 30</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/step-by-step-guide-to-flawless-zoom-screen-sharing/"><u>Step-by-Step Guide to Flawless Zoom Screen Sharing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/telechargement-gratuit-du-codec-h265-pour-compresser-et-encoder-en-video-hevc/"><u>Téléchargement Gratuit Du Codec H.265 Pour Compresser Et Encoder en Vidéo HEVC</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-apple-macbook-air-with-m1-chip-2020-a-revolutionary-leap-in-laptop-technology/"><u>Unveiling Apple MacBook Air with M1 Chip (2020): A Revolutionary Leap in Laptop Technology</u></a></li>
 </ul></div>
 

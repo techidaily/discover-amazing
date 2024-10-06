@@ -1,7 +1,7 @@
 ---
 title: Guide to Moving ePUB Files From Nook to Sony eReader for Enhanced Reading Experience
-date: 2024-09-26T17:38:52.451Z
-updated: 2024-09-30T18:11:43.730Z
+date: 2024-10-01T22:13:45.782Z
+updated: 2024-10-06T03:17:14.070Z
 categories:
   - epubor
 thumbnail: https://thmb.techidaily.com/a0bc606d13bf5b4bb98db38e302e2de3fccfa94f74c2f49ef3ec08979e13d4fd.jpg
@@ -25,6 +25,19 @@ If your Nook books have DRM protection, maybe your Sony Reader is not able to re
 
 As a result, if you want to read all your purchased Barnes&;Noble Nook books on your Sony Reader, the most reliable way is to strip your B&;N Nook book's DRM.
 
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Transfer Nook DRM protected books to Sony Reader. 
 
 #### **1.Download your purchased Nook books to computer** 
@@ -32,13 +45,6 @@ As a result, if you want to read all your purchased Barnes&;Noble Nook books on 
 You can download and install the Nook for Windows app and run it , click "Refresh" button to sync all your purchased books to your computer. Then click the cover of your Nook books to download them to your computer.
 
 ![sync nook books](http://www.epubor.com/images/uppic/sync-nook-books-via-nook-for-pc.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Important Note: The bad news is the NOOK for Windows App is no longer available for new downloads from the Microsoft Store. However, existing customers can continue to use the app as usual, with all previous NOOK content accessible in their NOOK Library. If there is no way for you to download Nook for Windows app, the best way to transfer Nook books to other eReaders is to [**Remove Nook DRM on Android**](https://tools.techidaily.com/epubor/products/) by using **Epubor Nook Converter**.
 
@@ -66,6 +72,13 @@ Then plug your Sony Reader to your computer, copy & paste those books to your So
 
 #### **![sony ereader](https://www.epubor.com/images/uppic/18.jpg "sony ereader")**5, **Transfer Adobe DRM protected books to Sony Reader**
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1) Keeping your Sony Reader plugged to your computer with USB cable. Nook for PC will detect the eBook device and a "My library" dialog box will pop out. Then please click "Authorize Device" and "Finished". At the same time you will see an icon of Sony Reader appearing in the left column under "My library".
 
 2) Click on the Nook ePUB eBooks you want to transfer on the right side of the screen and keep holding the mouse button down. Drag the mouse until the arrow is over your device's icon in the left pane. Then let go.
@@ -77,6 +90,13 @@ Tips
 * [Strip ePUB DRM on Adobe Digital Editions(Kobo,Sony Reader,Google iRiver Story HD etc)](https://tools.techidaily.com/epubor/products/)
 * [Transfer ePUB to Kindle](https://tools.techidaily.com/epubor/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Transfer Adobe DRM protected books to Sony Reader
 
 The method above is suitable for a people who has purchased lots of Nook DRM protected books in B&N store. But if you have also purchased many books in B&N store which are **protected by Adobe DRM**, you should follow these steps.
@@ -84,13 +104,6 @@ The method above is suitable for a people who has purchased lots of Nook DRM pro
 To read Nook books on Sony Reader without stripping the copy-protection, you should confirm that the book is protected by Adobe DRM.
 
 ![plug sony to ade](https://www.epubor.com/images/ade-plug-sony.png)How to do it? Download the book through Nook for PC, and find the book in your computer. (For my Win XP computer, I find them in "My Documents\\My Barnes & Noble eBooks"). 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Then install [Adobe Digital Editions](http://www.adobe.com/products/digital-editions.html), this is a manager and reader for all Adobe protected books. Open the Nook book with ADE, if you can read it smoothly, then congratulations, you are able to transfer the book to your Sony Reader, but if not, then this book is protected by B&N Nook DRM, you can only read it by Nook app, unless you strip its DRM.
 
@@ -105,17 +118,10 @@ If everything goes well, click on the Sony Reader icon, you can see the book dis
 ![ade transfer books to sony](https://www.epubor.com/images/ade-transfer-sony.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What if you want to transfer Nook books to other eReaders?
@@ -187,24 +193,22 @@ Leave a comment
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-online-presence-making-videos-on-mobile/"><u>[New] 2024 Approved Elevate Your Online Presence Making Videos on Mobile</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-comprehensive-guide-to-capturing-lol-showdowns-for-2024/"><u>[New] Comprehensive Guide to Capturing LOL Showdowns for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-navigating-google-meet-professionally-free-of-charge-for-2024/"><u>[Updated] Navigating Google Meet Professionally, Free of Charge for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-prime-audio-festivals-online/"><u>[Updated] Prime Audio Festivals Online</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-uncovering-the-leading-10-under-the-radar-story-viewers-for-2024/"><u>[Updated] Uncovering the Leading 10 Under-the-Radar Story Viewers for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-expert-analysis-zdsoft-for-screen-recording/"><u>2024 Approved Expert Analysis ZDSoft for Screen Recording</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-top-5-best-4k-monitors-for-color-grading/"><u>2024 Approved Top 5 Best 4K Monitors for Color Grading</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-live-streaming-apps-featuring-manycam-and-virtual-camera-solutions/"><u>Best Live Streaming Apps: Featuring ManyCam and Virtual Camera Solutions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-manycam-compatible-webcams-enhance-your-live-streaming-on-paltalk/"><u>Best ManyCam-Compatible Webcams: Enhance Your Live Streaming on Paltalk</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-broadcasts-with-manycam-advanced-features-in-live-video-and-digital-camera-solutions/"><u>Enhance Your Broadcasts with ManyCam: Advanced Features in Live Video and Digital Camera Solutions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-livestream-with-manycams-powerful-virtual-webcam-technology/"><u>Enhance Your Livestream with ManyCam's Powerful Virtual Webcam Technology</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-online-presence-using-manycam-top-choice-for-video-conferencing-and-green-screen-technology/"><u>Enhance Your Online Presence Using ManyCam - Top Choice for Video Conferencing & Green Screen Technology</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/expert-tips-for-choosing-the-best-live-video-apps-with-features-like-manycams-webcam-emulation/"><u>Expert Tips for Choosing the Best Live Video Apps with Features Like ManyCam's Webcam Emulation</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-becoming-an-expert-at-obs-studio-android-focus/"><u>In 2024, Becoming an Expert at OBS Studio Android Focus</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-crafting-professional-broadcasts-mastering-obs-plus-zoom-techniques/"><u>In 2024, Crafting Professional Broadcasts Mastering OBS + Zoom Techniques</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725616810714-live-streaming-made-easy-discover-manycam-your-ultimate-virtual-webcam-solution/"><u>Live Streaming Made Easy: Discover ManyCam - Your Ultimate Virtual Webcam Solution!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/revolutionize-your-broadcasts-with-manycam-top-live-video-solutions-and-digital-webcam-experiences/"><u>Revolutionize Your Broadcasts with ManyCam - Top Live Video Solutions & Digital Webcam Experiences</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ultimate-guide-to-manycam-top-live-streaming-app-and-digital-camera-alternative/"><u>Ultimate Guide to ManyCam: Top Live Streaming App and Digital Camera Alternative</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-protecting-ideas-avoidance-of-rash-removals/"><u>[New] 2024 Approved Protecting Ideas Avoidance of Rash Removals</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-achieving-seamless-tiktok-broadcasts-top-4-computer-methods-for-2024/"><u>[New] Achieving Seamless TikTok Broadcasts Top 4 Computer Methods for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-best-video-changer-tools-reviewed-8-of-the-best-for-iphones-and-pcs/"><u>[New] Best Video Changer Tools Reviewed 8 of the Best for iPhones and PCs</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-going-against-gravity-innovative-ways-to-rewind-youtube-content/"><u>[Updated] 2024 Approved Going Against Gravity Innovative Ways to Rewind YouTube Content</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-the-secret-to-professional-video-calls-on-zoom/"><u>[Updated] The Secret to Professional Video Calls on Zoom</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/best-free-download-fur-top-qualitat-4k-videos-and-playlists-erfahren-sie-mehr-uber-den-hervorragenden-4k-video-downloader/"><u>Best Free Download Für Top-Qualität 4K Videos & Playlists: Erfahren Sie Mehr Über Den Hervorragenden 4K Video-Downloader</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/convert-mov-files-to-mp4-for-free-cross-platform-support-for-mac-and-windows-11-users/"><u>Convert MOV Files to MP4 for Free: Cross-Platform Support for Mac and Windows 11 Users</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/exploring-the-privacy-terms-and-conditions-of-digiarty-software-inc/"><u>Exploring the Privacy Terms and Conditions of Digiarty Software, Inc.</u></a></li>
+<li><a href="https://extra-information.techidaily.com/fusionphotosync-designers-slide-show-tool/"><u>FusionPhotosync Designers' Slide Show Tool</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-contact-digiarty-comprehensive-guide/"><u>How to Contact Digiarty - Comprehensive Guide</u></a></li>
+<li><a href="https://ai-voice.techidaily.com/in-2024-top-ai-rap-voice-generators-upgrade-your-rap/"><u>In 2024, Top AI Rap Voice Generators Upgrade Your Rap</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-the-art-of-iso-burning-on-dvd-with-windows-10-8-and-7-a-comprehensive-guide/"><u>Mastering the Art of ISO Burning on DVD with Windows 10, 8 & 7 - A Comprehensive Guide</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/once-the-conversion-is-complete-you-will-find-vob-files-in-the-specified-output-folder-you-can-then-burn-these-files-onto-a-dvd-using-appropriate-software-o118/"><u>Once the Conversion Is Complete, You Will Find VOB Files in the Specified Output Folder. You Can Then Burn These Files Onto a DVD Using Appropriate Software or Copy Them Onto a Pre-Made DVD Blank Disc.</u></a></li>
+<li><a href="https://extra-support.techidaily.com/outro-samples-collection-including-both-costs-for-2024/"><u>Outro Samples Collection Including Both Costs for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unlocking-the-secrets-of-avi-and-dvd-conversion-top-5-watermark-free-methods/"><u>Unlocking the Secrets of AVI and DVD Conversion: Top 5 Watermark-Free Methods</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unselect-recommended-podcasts-efficiently-on-spotify/"><u>Unselect Recommended Podcasts Efficiently on Spotify</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winxvideo-ai-the-ultimate-video-and-image-enhancement-tool-for-editing-stabilizing-converting-and-recording/"><u>WinxVideo AI – The Ultimate Video and Image Enhancement Tool for Editing, Stabilizing, Converting & Recording</u></a></li>
 </ul></div>
 
