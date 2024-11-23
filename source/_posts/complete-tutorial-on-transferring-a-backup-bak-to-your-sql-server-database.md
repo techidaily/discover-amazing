@@ -1,7 +1,7 @@
 ---
 title: Complete Tutorial on Transferring a Backup (.BAK) to Your SQL Server Database
-date: 2024-11-10T19:10:52.721Z
-updated: 2024-11-13T03:56:40.296Z
+date: 2024-11-19T07:13:02.661Z
+updated: 2024-11-23T06:21:20.039Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778fa19e3b821f0bbc6f19d054.jpg
@@ -17,6 +17,10 @@ thumbnail: https://thmb.techidaily.com/af9a165cf92f635605999a01d9db00bb83502e778
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Logiciel de sauvegarde NAS Buffalo le plus efficace ! \[Guide inclus\]
 
@@ -44,20 +48,10 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
 
@@ -75,29 +69,9 @@ Toutes les opérations s'effectuent dans une interface intuitive, ce qui permet 
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-logo-ab-32.svg)AOMEI Backupper
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
-
-<!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
@@ -108,10 +82,7 @@ Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NA
 [![sauvegarde de fichiers](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/sauvegarde-de-fichiers.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Vous pouvez également choisir _Sauvegarde de disque_ et _Sauvegarde de partition_. Si vous souhaitez sauvegarder le système sur le NAS Buffalo, essayez la fonctionnalité de [Sauvegarde système](https://tools.techidaily.com/ubackup/products/).
@@ -146,6 +117,14 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
 
 Vous pouvez utiliser AOMEI Backupper Standard comme logiciel de sauvegarde NAS Buffalo pour sauvegarder des fichiers et exécuter cette tâche facilement et automatiquement. Par défaut, il ne sauvegarde que les fichiers modifiés pour économiser du temps de sauvegarde et de l'espace disque. Si vous souhaitez réduire davantage la taille de l'image de sauvegarde, vous pouvez utiliser des niveaux de compression, la sauvegarde sectorielle intelligente, le fractionnement automatique, etc.
@@ -161,13 +140,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
 
 ![Aurore](https://www.ubackup.com/assets/images/author/aurore.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 [Aurore](https://tools.techidaily.com/ubackup/products/) · Éditeur
 
@@ -201,7 +173,15 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-ic-secure-16.svg) 100% Propre & Sûr
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://www.ubackup.com/resource/images/ab-theme/ub-article-ab-medium-img-pc@2x.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -218,22 +198,18 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-converting-youtube-to-gif-a-comprehensive-online-process/"><u>[New] Converting YouTube to GIF A Comprehensive Online Process</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-innovating-engagement-integrate-thoughtful-chapters-into-your-youtube-videos/"><u>[Updated] Innovating Engagement Integrate Thoughtful Chapters Into Your YouTube Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-instagram-to-tik-tok-a-social-pivot-blueprint-for-2024/"><u>[Updated] Instagram to Tik Tok - A Social Pivot Blueprint for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-itel-a60s-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Itel A60s | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/beat-the-glitch-avoid-rocket-league-crashing-with-these-expert-tips-updated/"><u>Beat the Glitch: Avoid Rocket League Crashing with These Expert Tips (Updated )</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-free-download-fur-top-qualitat-4k-videos-and-playlists-erfahren-sie-mehr-uber-den-hervorragenden-4k-video-downloader/"><u>Best Free Download Für Top-Qualität 4K Videos & Playlists: Erfahren Sie Mehr Über Den Hervorragenden 4K Video-Downloader</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/city-planning-for-climate-action-a-comprehensive-guide-for-2024/"><u>City Planning for Climate Action A Comprehensive Guide for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/exploring-the-privacy-terms-and-conditions-of-digiarty-software-inc/"><u>Exploring the Privacy Terms and Conditions of Digiarty Software, Inc.</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-contact-digiarty-comprehensive-guide/"><u>How to Contact Digiarty - Comprehensive Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-vivo-y36i-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Vivo Y36i.</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/i-metodi-piu-efficienti-per-comprimere-i-file-dei-video-in-formato-mov-ottimizzandone-le-dimensioni/"><u>I Metodi Più Efficienti per Comprimere I File Dei Video in Formato MOV, Ottimizzandone Le Dimensioni</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-the-art-of-iso-burning-on-dvd-with-windows-10-8-and-7-a-comprehensive-guide/"><u>Mastering the Art of ISO Burning on DVD with Windows 10, 8 & 7 - A Comprehensive Guide</u></a></li>
-<li><a href="https://facebook.techidaily.com/mastering-the-art-of-untagging-on-social-networks/"><u>Mastering the Art of Untagging on Social Networks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/once-the-conversion-is-complete-you-will-find-vob-files-in-the-specified-output-folder-you-can-then-burn-these-files-onto-a-dvd-using-appropriate-software-o118/"><u>Once the Conversion Is Complete, You Will Find VOB Files in the Specified Output Folder. You Can Then Burn These Files Onto a DVD Using Appropriate Software or Copy Them Onto a Pre-Made DVD Blank Disc.</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/real-time-streaming-excellence-instagram-and-obs-unite-for-2024/"><u>Real-Time Streaming Excellence Instagram and OBS Unite for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unlocking-the-secrets-of-avi-and-dvd-conversion-top-5-watermark-free-methods/"><u>Unlocking the Secrets of AVI and DVD Conversion: Top 5 Watermark-Free Methods</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/winxvideo-ai-the-ultimate-video-and-image-enhancement-tool-for-editing-stabilizing-converting-and-recording/"><u>WinxVideo AI – The Ultimate Video and Image Enhancement Tool for Editing, Stabilizing, Converting & Recording</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-elevating-views-amplifying-impact-a-youtube-case-study/"><u>[New] 2024 Approved Elevating Views, Amplifying Impact A Youtube Case Study</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-finding-value-in-cheap-gopro-sales-online/"><u>[Updated] Finding Value in Cheap GoPro Sales Online</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/guide-facil-et-complet-convertir-votre-dvd-en-mp4-h265-gratuitement-avec-meilleure-definition/"><u>Guide Facil Et Complet : Convertir Votre DVD en MP4 H.265 Gratuitement Avec Meilleure Définition</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/guide-to-evaluating-the-longevity-and-performance-of-an-electric-car-battery/"><u>Guide to Evaluating the Longevity and Performance of an Electric Car Battery</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Change Spotify Location After Moving to Another Country On Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-xiaomi-redmi-note-12r-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Xiaomi Redmi Note 12R FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-personalizing-your-ig-experience-blocking-tactics/"><u>In 2024, Personalizing Your IG Experience Blocking Tactics</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-the-makeblock-mbot-building-and-programming-experience/"><u>In-Depth Analysis of the Makeblock mBot Building & Programming Experience</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resolving-cyclic-redundancy-check-mistakes-in-anydvd-and-clonedvdmobile-a-step-by-step-guide/"><u>Resolving Cyclic Redundancy Check Mistakes in AnyDVD & CloneDVD/Mobile: A Step-by-Step Guide</u></a></li>
+<li><a href="https://windows11.techidaily.com/the-key-to-efficient-storage-how-to-manage-ntfs-compression-in-win11/"><u>The Key to Efficient Storage: How to Manage NTFS Compression in Win11</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transform-your-avchd-files-top-5-no-cost-methods-to-conversion-into-mp4-format-on-windows-10/"><u>Transform Your AVCHD Files: Top 5 No-Cost Methods to Conversion Into MP4 Format on Windows 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winxvideos-ai-solutions-essential-qanda-insights-for-successful-implementation/"><u>Winxvideo's AI Solutions - Essential Q&A Insights for Successful Implementation</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/winxvideo-ai-webcam/"><u>오디오와 비디오 안전성 강화 - WinxVideo AI에서 스마트 화면 및 Webcam 보호 기술</u></a></li>
 </ul></div>
 

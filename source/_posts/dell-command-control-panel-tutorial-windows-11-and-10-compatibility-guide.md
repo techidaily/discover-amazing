@@ -1,7 +1,7 @@
 ---
 title: Dell Command Control Panel Tutorial - Windows 11 & 10 Compatibility Guide
-date: 2024-11-09T20:42:07.294Z
-updated: 2024-11-13T04:24:50.029Z
+date: 2024-11-21T23:27:12.769Z
+updated: 2024-11-23T04:20:26.137Z
 categories:
   - AOMEI-Backuper
 thumbnail: https://thmb.techidaily.com/c08cfb9fc52b90a12972e5ec144ec0c7f63bc215d0f41358268b867a2994d1b8.jpg
@@ -43,20 +43,10 @@ NAS Buffalo est la solution idéale pour la protection des données et peut faci
 
 [![buffalo](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/others/image/nas-buffalo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ne vous inquiétez pas trop. Vous pouvez envisager d'utiliser un logiciel de sauvegarde NAS tiers pour vous aider. [AOMEI Backupper Standard](https://tools.techidaily.com/ubackup/products/) est un excellent choix en raison de sa grande compatibilité (prise en charge de Windows 7/8/10/11/XP/Vista), de sa gratuité, de sa facilité d'utilisation, de sa flexibilité et de ses fonctionnalités riches.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Avantages du logiciel de sauvegarde NAS Buffalo - AOMEI Backupper Standard
@@ -79,6 +69,10 @@ Meilleur logiciel de sauvegarde Windows gratuit pour usage personnel.
 
 [**Télécharger gratuiciel** Windows 11/10/8.1/8/7](https://tools.techidaily.com/ubackup/products/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Comment utiliser le logiciel de sauvegarde NAS Buffalo pour Windows pour sauvegarder des fichiers
 
 Avant de commencer à sauvegarder des fichiers avec le logiciel de sauvegarde NAS Buffalo pour Windows, veuillez préparer un disque dur externe, une clé USB, etc. pour stocker l'image de sauvegarde. Ensuite, suivez attentivement les étapes ci-dessous.
@@ -99,9 +93,17 @@ Cliquez sur **Share/NAS** pour ouvrir la fenêtre suivante.
 
 [![share/nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/ouvrir.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le nom d'affichage, l'adresse IP, le nom d'utilisateur et le mot de passe pour connecter votre espace de stockage NAS Buffalo. Double-cliquez ensuite dessus dans le volet de gauche et sélectionnez ce que vous souhaitez sauvegarder dans la liste de droite.
 
 [![ajouter périphérique share ou nas](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/sauvegarde-fichier/emplacement-reseau.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Étape 3.** Cliquez là où la flèche pointe et sélectionnez le disque externe préparé comme destination.
 
@@ -110,13 +112,6 @@ Ensuite, cliquez sur **Ajouter un périphérique Share ou NAS**, saisissez le no
 **Étape 4.** Pour rendre la sauvegarde simple et efficace, définissez une planification de sauvegarde quotidienne, hebdomadaire ou mensuelle dans l'endroit inférieur et cliquez sur **Démarrer** pour sauvegarder le NAS Buffalo. Si vous cochez la case Réveiller l'ordinateur pour exécuter les tâches planifiées, le logiciel s'ouvrira et exécutera automatiquement cette tâche.
 
 [![mode planifier](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/mode-planifier.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Par défaut, ce logiciel créera une sauvegarde complète et 6 sauvegardes incrémentielles si vous définissez une tâche de sauvegarde planifiée. Cela peut entraîner un problème d'espace disque plein à long terme, il est donc recommandé d'activer le [Plan de sauvegarde](https://tools.techidaily.com/ubackup/products/) et de supprimer automatiquement les fichiers de sauvegarde. Pour profiter de ces fonctions, passez à l'édition [Professional](https://tools.techidaily.com/ubackup/products/).
 
@@ -127,17 +122,11 @@ De plus, vous pouvez activer la notification par e-mail une fois la tâche termi
 [![options](https://www.ubackup.com/fr/articles/data:image/gif;base64,R0lGODlhAQABAIAAAAAAAP///yH5BAEAAAAALAAAAAABAAEAAAIBRAA7)](https://www.ubackup.com/screenshot/fr/std/backup/sauvegarder/options-sauvegarder/sauvegarde-options.png "AOMEI Email SMS Notification Settings")
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Dernières réflexions sur l'utilitaire de sauvegarde Buffalo
@@ -160,13 +149,6 @@ Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour no
 
 Éditrice senior d'AOMEI Technology qui rédige principalement des articles sur la sauvegarde, la synchronisation, le clonage et la restauration de l'ordinateur, tout dans le but de proposer des solutions simples aux utilisateurs pour protéger les données de leur ordinateur. Grâce à ses expertises informatiques, elle propose souvent des astuces très utiles.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Autres articles connexes
 
 ##### [Meilleur logiciel pour sauvegarder NAS Buffalo sur disque dur externe](https://tools.techidaily.com/ubackup/products/)
@@ -186,6 +168,10 @@ Aidez-nous à améliorer cet article
 Les informations fournies sont-elles utiles ? Votre vote compte beaucoup pour nous !
 
 [Oui](https://tools.techidaily.com/ubackup/products/)[Non](https://tools.techidaily.com/ubackup/products/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Obtenez gratuitement AOMEI Backupper
 
@@ -212,17 +198,24 @@ Protégez toutes les données de votre ordinateur avec la sauvegarde, la synchro
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/updated-understanding-your-srt-equipment-like-a-pro/"><u>[Updated] Understanding Your SRT Equipment Like a Pro</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-audio-adaptation-innovations-for-youtubers-videos/"><u>2024 Approved Audio Adaptation Innovations for YouTubers' Videos</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-direct-gif-to-video-upgrade-no-download-just-click-and-convert/"><u>2024 Approved Direct GIF-to-Video Upgrade No Download, Just Click & Convert</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-illusions-unveiled-discerning-genuine-supporters-in-digital-platforms/"><u>2024 Approved Illusions Unveiled Discerning Genuine Supporters in Digital Platforms</u></a></li>
-<li><a href="https://techidaily.com/abbyy-enhances-tech-capabilities-with-strategic-growth-in-second-quarter-of-2019/"><u>ABBYY Enhances Tech Capabilities with Strategic Growth in Second Quarter of 2019</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effortless-mov-to-flv-conversion-preserving-high-quality-video/"><u>Effortless MOV to FLV Conversion: Preserving High-Quality Video</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/guia-paso-a-paso-para-minimizar-los-videos-hd4k8k-reduccion-del-tamano-hasta-un-90/"><u>Guía Paso a Paso Para Minimizar Los Videos HD/4K/8K: Reducción Del Tamaño Hasta Un 90%</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/herausragende-videoqualitat-erhalten-grossenkompensierter-mp4-formatumwandlung-zur-optimierung-von-onlineinhalten/"><u>Herausragende Videoqualität Erhalten: Größenkompensierter MP4-Formatumwandlung Zur Optimierung Von Onlineinhalten</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-mac-personalization-a-guide-to-modifying-folder-shades/"><u>Mastering Mac Personalization: A Guide to Modifying Folder Shades</u></a></li>
-<li><a href="https://driver-install.techidaily.com/nvidia-quadro-rtx-6000-software-update/"><u>NVIDIA Quadro RTX 6000 Software Update</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/transform-your-videocts-to-dvd-instantly-with-these-4-simple-methods/"><u>Transform Your Video_CTS to DVD Instantly with These 4 Simple Methods</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723212040115-unprintable-pdf-woes-masterful-shortcuts-to-make-them-work/"><u>Unprintable PDF Woes? Masterful Shortcuts to Make Them Work</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-discover-the-premier-5-ios-podcast-clients/"><u>[Updated] 2024 Approved Discover the Premier 5 iOS Podcast Clients</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-from-static-to-dynamic-hyperlapse-video-techniques/"><u>[Updated] In 2024, From Static to Dynamic Hyperlapse Video Techniques</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-mastering-close-up-views-in-roblox-games/"><u>[Updated] Mastering Close-Up Views in Roblox Games</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-12-pro-max-by-drfone-ios/"><u>7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 12 Pro Max</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1725285058936-windows-11/"><u>解決 Windows 11 安裝缺失備份資料的常見問題 - 關鍵指引</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/dvdwindows10112/"><u>最新DVD編集技術ガイド：Windows10/11用の上位2つの編集プログラムを見てみよう</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/behind-the-scenes-of-eco-friendly-visual-tricks-in-media-for-2024/"><u>Behind the Scenes of Eco-Friendly Visual Tricks in Media for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/dvd-decrypter-dvd/"><u>DVD Decrypterのワンライフヒッツ: 簡単なDVDコピー複製と書き込みガイド</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/dvdiso/"><u>DVDディスクからISO画像への変換手順</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725285226055-dvd-winx-dvd-ripper-platinum/"><u>DVDを処理する際に必要な WinX DVD Ripper Platinumの使い方と編集・設定手順ガイド</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/einlesen-eines-iso-images-auf-eine-dvd-mit-windows-11-schritt-fur-schritt-anleitung/"><u>Einlesen Eines ISO-Images Auf Eine DVD Mit Windows 11 - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/guide-facil-et-complet-convertir-votre-dvd-en-mp4-h265-gratuitement-avec-meilleure-definition/"><u>Guide Facil Et Complet : Convertir Votre DVD en MP4 H.265 Gratuitement Avec Meilleure Définition</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-erase-everything-with-a-factory-reset-in-windows-11-via-revo-uninstaller-pro/"><u>How to Erase Everything with a Factory Reset in Windows 11 via Revo Uninstaller Pro</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-poco-m6-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Poco M6 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/master-the-art-of-tiktok-tidying-up-smart-strategies-for-oversized-drafts-for-2024/"><u>Master the Art of TikTok Tidying Up Smart Strategies for Oversized Drafts for 2024</u></a></li>
+<li><a href="https://some-tips.techidaily.com/tips-and-tricks-for-effortless-finding-exceptional-pexel-images-for-2024/"><u>Tips and Tricks for Effortless Finding Exceptional Pexel Images for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-free-tools-for-dvd-to-mp3-conversion-without-compromising-quality/"><u>Top Free Tools for DVD-to-MP3 Conversion without Compromising Quality</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transform-your-avchd-files-top-5-no-cost-methods-to-conversion-into-mp4-format-on-windows-10/"><u>Transform Your AVCHD Files: Top 5 No-Cost Methods to Conversion Into MP4 Format on Windows 10</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/tutorial-posting-hd-and-4k-quality-films-effortlessly-on-insta/"><u>Tutorial: Posting HD & 4K Quality Films Effortlessly on Insta</u></a></li>
 </ul></div>
 
