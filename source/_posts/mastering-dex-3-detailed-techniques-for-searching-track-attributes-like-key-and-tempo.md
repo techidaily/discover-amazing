@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2024-11-27T09:22:30.670Z
-updated: 2024-11-30T17:55:33.434Z
+date: 2024-11-28T19:24:32.315Z
+updated: 2024-12-01T16:20:22.374Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,22 +59,14 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-finding-clarity-in-colors-top-5-4k-monitors-showcased/"><u>[New] Finding Clarity in Colors Top 5 4K Monitors Showcased</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-steady-shots-how-to-avoid-lens-cloudiness-for-2024/"><u>[New] Steady Shots How to Avoid Lens Cloudiness for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-from-blank-page-to-airwaves-writing-engaging-podcast-episodes-for-2024/"><u>[Updated] From Blank Page to Airwaves Writing Engaging Podcast Episodes for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/60-years-reflection-europes-linguistic-unity-in-progress/"><u>60 Years Reflection – Europe's Linguistic Unity in Progress</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/datenwiederherstellung-nach-einem-diskpart-saubereinigungsverlust-losungen-und-methoden/"><u>Datenwiederherstellung Nach Einem Diskpart-Saubereinigungsverlust - Lösungen Und Methoden</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effektive-methoden-um-windows-nativ-zu-reparieren-ein-leitfaden-fur-windows-11/"><u>Effektive Methoden, Um Windows Nativ Zu Reparieren: Ein Leitfaden Für Windows 11</u></a></li>
-<li><a href="https://blog-min.techidaily.com/gratuita-conversion-de-archivos-ogg-a-wma-online-usando-movavi/"><u>Gratuita Conversión De Archivos OGG a WMA Online: Usando Movavi</u></a></li>
-<li><a href="https://windows11.techidaily.com/guidelines-for-overcoming-installer-hurdles-in-windows-environments/"><u>Guidelines for Overcoming Installer Hurdles in Windows Environments</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-nubia-red-magic-9-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Nubia Red Magic 9 Pro For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/optimale-strategien-fur-den-speichertransfer-hochauflosendes-systemabbild-auf-moderne-festplatten-kopieren/"><u>Optimale Strategien Für Den Speichertransfer: Hochauflösendes Systemabbild Auf Moderne Festplatten Kopieren</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/risoluzione-guida-per-lerrore-di-backup-wd-su-sistemi-operativi-windows-versioni-11-10-8-e-7/"><u>Risoluzione Guida per L'Errore Di Backup WD Su Sistemi Operativi Windows (Versioni 11, 10, 8 E 7)</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/seamless-transition-convert-your-32-bit-windows-10-to-64-bit-without-data-loss/"><u>Seamless Transition: Convert Your 32-Bit Windows 10 to 64-Bit Without Data Loss</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/section-4c-pineal-gland-questions-advanced-level/"><u>Section 4C: Pineal Gland Questions - Advanced Level</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/sicherung-von-dateien-auf-onedrive-erfahren-sie-uber-zwei-effektive-strategien-zur-nutzung-des-versionierungsverlaufs/"><u>Sicherung Von Dateien Auf OneDrive: Erfahren Sie Über Zwei Effektive Strategien Zur Nutzung Des Versionierungsverlaufs</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/tech-savvys-choice-why-the-apple-ipad-pro-11-inch-is-unbeatable-in-todays-market-a-comprehensive-review/"><u>Tech Savvy's Choice: Why the Apple iPad Pro (11-Inch) Is Unbeatable in Today's Market - A Comprehensive Review</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/tre-modi-per-ripristinare-le-fotografie-dal-tuo-disco-durato-sul-sistema-operativo-windows/"><u>Tre Modi per Ripristinare Le Fotografie Dal Tuo Disco Durato Sul Sistema Operativo Windows</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/what-exactly-are-pc-drivers-tips-for-resolving-windows-driver-errors/"><u>What Exactly Are PC Drivers? Tips for Resolving Windows Driver Errors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-full-disclosure-gecata-gameplay-tracker-reviewed/"><u>[Updated] Full Disclosure Gecata Gameplay Tracker Reviewed</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/disk-cloning-mastery-unlocking-the-potential-of-hirens-bootcd-essentials/"><u>Disk Cloning Mastery: Unlocking the Potential of Hiren's BootCD Essentials</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-recover-from-network-not-found-error-windows/"><u>How to Recover From 'Network Not Found' Error Windows</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/successful-strategies-for-restoring-data-on-your-sata-storage-device/"><u>Successful Strategies for Restoring Data on Your SATA Storage Device</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/top-24-delightful-dell-deals-on-the-festive-season-compare-prices-from-best-buy-amazon-and-newegg-featured-by-zdnet/"><u>Top 24 Delightful Dell Deals on the Festive Season: Compare Prices From Best Buy, Amazon & Newegg - Featured by ZDNet</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-the-seo-puzzle-strategies-that-elevate-your-podcasts-for-2024/"><u>Unlocking the SEO Puzzle Strategies That Elevate Your Podcasts for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/windows-10mbr-hdd/"><u>Windows 10におけるMBR HDDの削除手順：３つのアプローチ</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728486894329-windows-1011/"><u>パーティションテーブル修復: Windows 10と11におすすめの解決策</u></a></li>
 </ul></div>
 
