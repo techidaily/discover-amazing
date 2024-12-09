@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX3 DJ: A Comprehensive Guide on Adjusting & Editing Font Sizes in Pioneer CDJ"
-date: 2024-11-26T16:06:13.518Z
-updated: 2024-12-01T17:38:08.393Z
+date: 2024-12-03T20:05:01.920Z
+updated: 2024-12-09T11:10:36.177Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ We’ll still attempt to bring you other helpful Digital DJ and karaoke tips dur
 ##### Make sure to check back early next week for the official PCDJ DEX 3 announcement!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,16 +50,18 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/08/learncoverimage.jpg?fit=53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://discover-amazing.techidaily.com/best-live-streaming-apps-featuring-manycam-and-virtual-camera-solutions/"><u>Best Live Streaming Apps: Featuring ManyCam and Virtual Camera Solutions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/best-manycam-compatible-webcams-enhance-your-live-streaming-on-paltalk/"><u>Best ManyCam-Compatible Webcams: Enhance Your Live Streaming on Paltalk</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-your-broadcasts-with-manycam-advanced-features-in-live-video-and-digital-camera-solutions/"><u>Enhance Your Broadcasts with ManyCam: Advanced Features in Live Video and Digital Camera Solutions</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/enhancing-your-content-10-exceptional-reacting-techniques-for-2024/"><u>Enhancing Your Content 10 Exceptional Reacting Techniques for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-device-not-present-issue-for-windows-os-code-24/"><u>How to Fix 'Device Not Present' Issue for Windows OS (Code 24)</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-oppo-k11x-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Oppo K11x | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1725616810714-live-streaming-made-easy-discover-manycam-your-ultimate-virtual-webcam-solution/"><u>Live Streaming Made Easy: Discover ManyCam - Your Ultimate Virtual Webcam Solution!</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-samsung-galaxy-f15-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Samsung Galaxy F15 5G? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/programmable-shortcuts-to-boost-windows-use/"><u>Programmable Shortcuts to Boost Windows Use</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ultimate-guide-to-manycam-top-live-streaming-app-and-digital-camera-alternative/"><u>Ultimate Guide to ManyCam: Top Live Streaming App and Digital Camera Alternative</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/ultimate-guide-to-ring-video-doorbell-2-top-smart-home-security-device/"><u>Ultimate Guide to Ring Video Doorbell 2 - Top Smart Home Security Device</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-unraveling-the-mysteries-of-instagram-saved-stories/"><u>[New] Unraveling the Mysteries of Instagram Saved Stories</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-choosing-a-streaming-powerhouse-obs-or-wirecast-for-2024/"><u>[Updated] Choosing a Streaming Powerhouse OBS or Wirecast for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-airdrop-issues-quick-solutions-for-iphoneipadmac-users/"><u>2024 Approved Mastering AirDrop Issues Quick Solutions for iPhone/iPad/Mac Users</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/checking-windows-defender-status-a-guide-to-enablingdisabling-insights-from-yl-computing/"><u>Checking Windows Defender Status: A Guide to Enabling/Disabling - Insights From YL Computing</u></a></li>
+<li><a href="https://win-updates.techidaily.com/complete-step-by-step-tutorial-accessing-your-text-messages-via-icloud/"><u>Complete Step-by-Step Tutorial: Accessing Your Text Messages via iCloud</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/hard-disk-health-management-essential-software-apps-compared-by-tech-wizardry-inc/"><u>Hard Disk Health Management: Essential Software Apps Compared by Tech Wizardry Inc.</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/hd-1080p-fall-themed-screen-savers-and-desktops-high-quality-images-and-graphics-for-your-computer-display/"><u>HD 1080P Fall-Themed Screen Savers and Desktops: High-Quality Images & Graphics for Your Computer Display</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-ai-is-set-to-revolutionize-iot-integration-according-to-abbyy-experts/"><u>How AI Is Set to Revolutionize IoT Integration, According to ABBYY Experts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-broadcasting-fb-movies-on-whatsapp/"><u>In 2024, Broadcasting FB Movies on WhatsApp</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-the-thaumaturge-crash-glitch-expert-advice-for-smooth-gaming-sessions/"><u>Overcoming the Thaumaturge Crash Glitch: Expert Advice for Smooth Gaming Sessions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/troubleshooting-guide-fixing-network-detection-problems-with-scanners-by-yl-software/"><u>Troubleshooting Guide: Fixing Network Detection Problems with Scanners by YL Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/understanding-the-tax-implications-of-crypto-trades-a-guide-by-yl-computing/"><u>Understanding the Tax Implications of Crypto Trades: A Guide - By YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/windows-tutorial-customizing-display-properties-through-the-control-panel-with-yl-computing-solutions/"><u>Windows Tutorial: Customizing Display Properties Through the Control Panel with YL Computing Solutions</u></a></li>
 </ul></div>
 

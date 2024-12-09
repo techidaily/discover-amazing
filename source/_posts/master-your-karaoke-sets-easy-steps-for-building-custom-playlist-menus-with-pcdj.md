@@ -1,7 +1,7 @@
 ---
 title: "Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ"
-date: 2024-11-27T17:17:20.706Z
-updated: 2024-12-01T20:33:55.985Z
+date: 2024-12-04T16:14:57.860Z
+updated: 2024-12-08T22:02:42.380Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ As the Karaoki quick-tip tutorial video explains in detail, you simply create a 
 #### Watch Karaoke Software Quick Tip: Creating Custom Playlists In PCDJ Karaoki
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,22 +44,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/03/karaokiquicktip-customlist
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-clips.techidaily.com/updated-fuel-your-film-rate-with-these-easy-tiktok-tricks-for-2024/"><u>[Updated] Fuel Your Film Rate with These Easy TikTok Tricks for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-apex-legends-mastery-exploring-single-platform-potential/"><u>[Updated] In 2024, Apex Legends Mastery Exploring Single Platform Potential</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1-unlock-your-files-free-tutorial-retrieve-lost-data-without-a-backup-on-windows-11/"><u>1. Unlock Your Files: Free Tutorial - Retrieve Lost Data Without a Backup on Windows 11</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-monitor-top-youtube-videos-select-rank-trackers-guide/"><u>2024 Approved Monitor Top YouTube Videos - Select Rank Trackers Guide</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/3-solutions-to-find-your-apple-iphone-xr-current-location-of-a-mobile-number-drfone-by-drfone-virtual-ios/"><u>3 Solutions to Find Your Apple iPhone XR Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/comment-installer-avec-succes-le-sistema-operativo-windows-sur-votre-ssd-de-brand-sandisk-en-quatre-facilements-etapes/"><u>Comment Installer Avec Succès Le Sistema Operativo Windows Sur Votre SSD De Brand Sandisk en Quatre Facilements Étapes</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/como-hacer-una-copia-de-seguridad-del-ssd-en-una-unidad-hdd-usando-windows-11/"><u>Cómo Hacer Una Copia De Seguridad Del SSD en Una Unidad HDD Usando Windows 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ejecucion-paso-a-paso-actualizacion-de-disco-duro-clasico-a-computadora-moderna-usando-windows-ebrazo-11/"><u>Ejecución Paso a Paso: Actualización De Disco Duro Clásico a Computadora Moderna Usando Windows Ebrazo 11</u></a></li>
-<li><a href="https://games-able.techidaily.com/first-in-line-secure-spiderman-2-limited-edition-ps5/"><u>First In Line: Secure SPIDERMAN 2 Limited Edition PS5</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/guia-paso-a-paso-para-transferir-la-particion-de-rescate-a-un-disco-duro-externa-en-versiones-recientes-de-windows/"><u>Guía Paso a Paso Para Transferir La Partición De Rescate a Un Disco Duro Externa en Versiones Recientes De Windows</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/how-to-kick-start-your-digital-broadcast-today-for-2024/"><u>How to Kick-Start Your Digital Broadcast Today for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-10plus-proven-methods-to-enhance-zoom-session-captures/"><u>In 2024, 10+ Proven Methods to Enhance Zoom Session Captures</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your ZTE Blade A73 5G | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resolving-errors-how-to-fix-system-unable-to-retrieve-file/"><u>Resolving Errors - How to Fix 'System Unable to Retrieve File'</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/scambio-semplice-e-rapido-della-partizione-riservata-al-sistema-su-hard-disk-alternativo/"><u>Scambio Semplice E Rapido Della Partizione Riservata Al Sistema Su Hard Disk Alternativo</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/top-rated-unified-server-data-protection-solutions-for-windows-environments/"><u>Top Rated Unified Server Data Protection Solutions for Windows Environments</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-a-guide-to-sustaining-longer-gopro-battery-life/"><u>[Updated] A Guide to Sustaining Longer GoPro Battery Life</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-master-screen-capture-detailed-tutorial-walkthrough/"><u>2024 Approved Master Screen Capture Detailed Tutorial Walkthrough</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/anticipated-apples-domestic-robot-unveiling-potential-cost-launch-timeline-and-features-revealed/"><u>Anticipated Apple's Domestic Robot Unveiling: Potential Cost, Launch Timeline & Features Revealed</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diagnosing-and-fixing-gpu-errors-in-windows-11-with-yl-softwares-step-by-step-tutorial/"><u>Diagnosing and Fixing GPU Errors in Windows 지급자인형 11 with YL Software's Step-by-Step Tutorial</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diagnosing-failed-launches-in-apps-expert-advice-from-yl-software-team/"><u>Diagnosing Failed Launches in Apps: Expert Advice From YL Software Team</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/1722895445470-discover-the-ideal-note-capturing-tools-on-ipad-and-ipad-pro/"><u>Discover the Ideal Note-Capturing Tools on iPad and iPad Pro</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/exclusive-dj-membership-access-new-karaoke-tracks-and-song-selection-guide-updated-feb-28th-2na/"><u>Exclusive DJ Membership Access: New Karaoke Tracks & Song Selection Guide | Updated Feb 28Th, 2N/A!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-fix-a-malfunctioning-graphics-card-installation-tips-by-yl-software/"><u>How to Fix a Malfunctioning Graphics Card Installation, Tips by YL Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-resolve-unrecognized-scanner-issues-with-your-pc-expert-tips-from-yl-computing/"><u>How To Resolve Unrecognized Scanner Issues with Your PC - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/identifying-and-resolving-hardware-clashes-a-comprehensive-guide-tips-by-yl-computing/"><u>Identifying and Resolving Hardware Clashes: A Comprehensive Guide - Tips by YL Computing</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-staying-serene-in-meetings-master-the-art-of-quieting-others-in-google-video-conversations/"><u>In 2024, Staying Serene in Meetings Master the Art of Quieting Others in Google Video Conversations</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-nokia-c210-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Nokia C210 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/techniques-simples-pour-telecharger-en-ligne-des-films-youtube-sans-frais-guide-complet-sur-ordinateur-smartphone-ou-tablette/"><u>Techniques Simples Pour Télécharger En Ligne Des Films YouTube Sans Frais : Guide Complet Sur Ordinateur, Smartphone Ou Tablette</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/the-ultimate-checklist-for-hardware-care-insights-from-yl-software-experts/"><u>The Ultimate Checklist for Hardware Care: Insights From YL Software Experts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ultimate-connectivity-handbook-for-insta-and-tik/"><u>The Ultimate Connectivity Handbook for Insta & Tik</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/top-ranked-ultimate-guide-to-professional-photo-editing-transform-your-images-with-these-background-switchers/"><u>Top-Ranked Ultimate Guide to Professional Photo Editing: Transform Your Images with These Background Switchers</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/understanding-psu-faults-a-deep-dive-by-yl-computing/"><u>Understanding PSU Faults: A Deep Dive by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unlock-the-secrets-of-audio-file-management-yl-software-mastery-techniques-for-opening-sounds-and-music/"><u>Unlock the Secrets of Audio File Management - YL Software Mastery Techniques for Opening Sounds and Music</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/upcoming-release-alert-yl-computing-announces-january-2024-shipment-date-for-bitmains-cutting-edge-antminer-t21/"><u>Upcoming Release Alert: YL Computing Announces January 2024 Shipment Date for Bitmain’s Cutting-Edge Antminer T21</u></a></li>
 </ul></div>
 

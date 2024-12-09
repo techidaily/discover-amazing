@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2024-11-28T19:24:32.315Z
-updated: 2024-12-01T16:20:22.374Z
+date: 2024-12-04T01:29:33.835Z
+updated: 2024-12-09T11:50:18.337Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,14 +59,20 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-full-disclosure-gecata-gameplay-tracker-reviewed/"><u>[Updated] Full Disclosure Gecata Gameplay Tracker Reviewed</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/disk-cloning-mastery-unlocking-the-potential-of-hirens-bootcd-essentials/"><u>Disk Cloning Mastery: Unlocking the Potential of Hiren's BootCD Essentials</u></a></li>
-<li><a href="https://windows11.techidaily.com/how-to-recover-from-network-not-found-error-windows/"><u>How to Recover From 'Network Not Found' Error Windows</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/successful-strategies-for-restoring-data-on-your-sata-storage-device/"><u>Successful Strategies for Restoring Data on Your SATA Storage Device</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/top-24-delightful-dell-deals-on-the-festive-season-compare-prices-from-best-buy-amazon-and-newegg-featured-by-zdnet/"><u>Top 24 Delightful Dell Deals on the Festive Season: Compare Prices From Best Buy, Amazon & Newegg - Featured by ZDNet</u></a></li>
-<li><a href="https://some-skills.techidaily.com/unlocking-the-seo-puzzle-strategies-that-elevate-your-podcasts-for-2024/"><u>Unlocking the SEO Puzzle Strategies That Elevate Your Podcasts for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-10mbr-hdd/"><u>Windows 10におけるMBR HDDの削除手順：３つのアプローチ</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1728486894329-windows-1011/"><u>パーティションテーブル修復: Windows 10と11におすすめの解決策</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exciting-conversation-starter-ideas/"><u>[New] 2024 Approved Exciting Conversation Starter Ideas</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-top-5-tiktok-fonts-for-higher-engagement-in-23/"><u>[New] Top 5 TikTok Fonts for Higher Engagement in '23</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-god-of-thunder-returns-epic-dawn-for-2024/"><u>[Updated] God of Thunder Returns Epic Dawn for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-xbox-one-screen-recording-easy-steps-for-gamers-for-2024/"><u>[Updated] Xbox One Screen Recording Easy Steps for Gamers for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/classic-stars-and-stripes-desktop-background-professional-imagery-for-windowsmac-from-yl-software/"><u>Classic Stars and Stripes Desktop Background - Professional Imagery for Windows/Mac From YL Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diagnosing-audio-component-issues-solutions-by-yl-computing/"><u>Diagnosing Audio Component Issues - Solutions by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-diagnose-and-fix-unexpected-computer-restarts-with-expert-advice-from-yl-software/"><u>How to Diagnose & Fix Unexpected Computer Restarts with Expert Advice From YL Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/never-stop-the-music-discover-reliable-joys-of-karaoke-subscription-on-karaoke-cloud-pro/"><u>Never Stop the Music: Discover Reliable Joys of Karaoke Subscription on Karaoke Cloud Pro</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-elevate-prompt-obstacles-with-effective-windows-tips/"><u>Overcoming 'Elevate Prompt' Obstacles with Effective Windows Tips</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/overcoming-setup-challenges-for-your-audio-hardware-tips-from-yl-software-experts/"><u>Overcoming Setup Challenges for Your Audio Hardware: Tips From YL Software Experts</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/quick-guide-duplicate-and-preserve-your-dvd-collection-using-winx-dvd-copy-software/"><u>Quick Guide: Duplicate and Preserve Your DVD Collection Using WinX DVD Copy Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-identifying-and-fixing-memory-issues-on-your-windows-pc-tech-tips-by-yl-computing/"><u>Step-by-Step Guide: Identifying & Fixing Memory Issues on Your Windows PC - Tech Tips by YL Computing</u></a></li>
+<li><a href="https://blog-min.techidaily.com/step-by-step-guide-resolving-vdvu-cannot-convert-to-digital-error-problems/"><u>Step-by-Step Guide: Resolving 'vDVU Cannot Convert to Digital' Error Problems</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/winning-at-customization-increasing-icon-dimensions-in-w11/"><u>Winning at Customization: Increasing Icon Dimensions in W11</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-softwares-ultimate-trick-for-changing-your-computers-interface-language/"><u>YL Software's Ultimate Trick for Changing Your Computer's Interface Language</u></a></li>
 </ul></div>
 

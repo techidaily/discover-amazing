@@ -1,7 +1,7 @@
 ---
 title: Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase
-date: 2024-11-27T17:04:06.743Z
-updated: 2024-12-01T22:59:00.141Z
+date: 2024-12-03T20:41:27.168Z
+updated: 2024-12-08T20:45:55.929Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,18 +46,24 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-gain-traction-in-the-algorithm-the-insiders-manual-for-featured-channels/"><u>[Updated] 2024 Approved Gain Traction in the Algorithm The Insider's Manual for Featured Channels</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-how-to-shoot-vertical-panorama-photos-with-your-smartphone-androidios/"><u>[Updated] In 2024, How to Shoot Vertical Panorama Photos with Your Smartphone Android/iOS</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/11-hard-drive-duplication-explained-the-simplest-methods-to-follow/"><u>11 Hard Drive Duplication Explained: The Simplest Methods to Follow</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effacement-securise-de-la-fonction-de-restauration-du-systeme-windows-10-techniques-et-conseils-experts-pour-une-gestion-efficace/"><u>Effacement Sécurisé De La Fonction De Restauration Du Système Windows 10 - Techniques Et Conseils Experts Pour Une Gestion Efficace</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gentle-audio-dimming-methods-in-os-xwindows-for-2024/"><u>Gentle Audio Dimming Methods in OS X/Windows for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-undo-corrupted-mp4-videos-on-your-windows-1187-pc-with-three-effective-methods/"><u>How to Undo Corrupted MP4 Videos on Your Windows 11/8/7 PC with Three Effective Methods</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-redmi-a2plus-without-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Redmi A2+ Without Password?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-top-5-budget-friendly-video-effect-tools/"><u>In 2024, Top 5 Budget-Friendly Video Effect Tools</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/les-meilleures-methodes-pour-mettre-en-resonance-vos-fichiers-locaux-avec-le-synology-nas-sous-windows/"><u>Les Meilleures Méthodes Pour Mettre en Résonance Vos Fichiers Locaux Avec Le Synology NAS Sous Windows</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/lost-your-chrome-bookmarks-discover-easy-ways-to-get-them-back/"><u>Lost Your Chrome Bookmarks? Discover Easy Ways to Get Them Back!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/optimiser-la-sauvegarde-selective-avec-robocopy-par-rapport-aux-methodes-traditionnelles-de-migration-de-donnees/"><u>Optimiser La Sauvegarde Selective Avec Robocopy Par Rapport Aux Méthodes Traditionnelles De Migration De Données</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/perfecting-video-speed-for-engaging-instagram-stories/"><u>Perfecting Video Speed for Engaging Instagram Stories</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/transformando-imagens-do-formato-tiff-para-jpg-gratuitamente-um-guia-simples/"><u>Transformando Imagens Do Formato TIFF Para JPG Gratuitamente: Um Guia Simples</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-next-gen-escapades-upcoming-best-playstation-vr-games-to-try/"><u>[Updated] 2024 Approved Next-Gen Escapades Upcoming Best PlayStation VR Games to Try</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-pro-video-capture-a-comprehensive-fraps-test/"><u>2024 Approved Pro Video Capture A Comprehensive Fraps Test</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/a-simple-tutorial-starting-screen-recording-on-mac/"><u>A Simple Tutorial Starting Screen Recording on Mac</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/build-your-own-crypto-trading-hub-expert-strategies-from-yl-computings-guide/"><u>Build Your Own Crypto Trading Hub: Expert Strategies From YL Computing's Guide</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/crea-file-audiolibere-convertendo-video-mp4-a-formato-m4b-scarica-il-tuo-utilizzo-gratuito-di-movavi/"><u>Crea File AudioLibere Convertendo Video MP4 a Formato M4B: Scarica Il Tuo Utilizzo Gratuito Di Movavi</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/easy-guide-to-personalizing-your-screen-on-windows-tips-from-yl-computing/"><u>Easy Guide to Personalizing Your Screen on Windows - Tips From YL Computing</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-realme-narzo-60x-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Realme Narzo 60x 5G? Try These Fixes</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guide-to-smooth-playthroughs-overcoming-frame-rate-fluctuations-and-hesitations-in-call-of-duty-modern-warfare-2-on-pc-systems/"><u>Guide to Smooth Playthroughs: Overcoming Frame Rate Fluctuations and Hesitations in Call of Duty Modern Warfare ^2 on PC Systems</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209857935-9780692063705-how-to-become-who-you-are/"><u>How to become who you are | Free Book</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/identifying-your-installed-graphics-card-a-step-by-step-guide-tech-insights-with-yl/"><u>Identifying Your Installed Graphics Card: A Step-by-Step Guide - Tech Insights with YL</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastering-sound-top-10-microphones/"><u>In 2024, Mastering Sound Top 10 Microphones</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/key-figures-in-the-taiping-uprising-unveiling-the-commanders-behind-the-movement-insights-by-yl-tech/"><u>Key Figures in the Taiping Uprising: Unveiling the Commanders Behind the Movement - Insights by YL Tech</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-empathy-utilizing-chatgpt-for-building-better-emotional-awareness/"><u>Mastering Empathy: Utilizing ChatGPT for Building Better Emotional Awareness</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/navigating-the-world-of-crypto-security-with-guidance-from-yl-software-experts/"><u>Navigating the World of Crypto-Security with Guidance From YL Software Experts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/pioneering-through-the-terrain-of-mixed-reality-for-2024/"><u>Pioneering Through the Terrain of Mixed Reality for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resolving-lack-of-audio-in-windows-os-tips-and-solutions-by-yl-software-experts/"><u>Resolving Lack of Audio in Windows OS - Tips and Solutions by YL Software Experts</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/solutions-for-fixing-silent-speakers-expert-advice-from-yl-computing/"><u>Solutions for Fixing Silent Speakers: Expert Advice From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-by-yl-software-for-easy-scanner-setup-and-optimization/"><u>Step-by-Step Tutorial by YL Software for Easy Scanner Setup and Optimization</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-recommended-pc-maintenance-programs-find-your-perfect-tool-insights-by-yl/"><u>Top Recommended PC Maintenance Programs: Find Your Perfect Tool - Insights by YL</u></a></li>
 </ul></div>
 
