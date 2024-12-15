@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2024-12-04T01:29:33.835Z
-updated: 2024-12-09T11:50:18.337Z
+date: 2024-12-12T16:41:40.128Z
+updated: 2024-12-15T18:30:05.066Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,20 +59,18 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-exciting-conversation-starter-ideas/"><u>[New] 2024 Approved Exciting Conversation Starter Ideas</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-top-5-tiktok-fonts-for-higher-engagement-in-23/"><u>[New] Top 5 TikTok Fonts for Higher Engagement in '23</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-god-of-thunder-returns-epic-dawn-for-2024/"><u>[Updated] God of Thunder Returns Epic Dawn for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-xbox-one-screen-recording-easy-steps-for-gamers-for-2024/"><u>[Updated] Xbox One Screen Recording Easy Steps for Gamers for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/classic-stars-and-stripes-desktop-background-professional-imagery-for-windowsmac-from-yl-software/"><u>Classic Stars and Stripes Desktop Background - Professional Imagery for Windows/Mac From YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diagnosing-audio-component-issues-solutions-by-yl-computing/"><u>Diagnosing Audio Component Issues - Solutions by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-diagnose-and-fix-unexpected-computer-restarts-with-expert-advice-from-yl-software/"><u>How to Diagnose & Fix Unexpected Computer Restarts with Expert Advice From YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/never-stop-the-music-discover-reliable-joys-of-karaoke-subscription-on-karaoke-cloud-pro/"><u>Never Stop the Music: Discover Reliable Joys of Karaoke Subscription on Karaoke Cloud Pro</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-elevate-prompt-obstacles-with-effective-windows-tips/"><u>Overcoming 'Elevate Prompt' Obstacles with Effective Windows Tips</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/overcoming-setup-challenges-for-your-audio-hardware-tips-from-yl-software-experts/"><u>Overcoming Setup Challenges for Your Audio Hardware: Tips From YL Software Experts</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/quick-guide-duplicate-and-preserve-your-dvd-collection-using-winx-dvd-copy-software/"><u>Quick Guide: Duplicate and Preserve Your DVD Collection Using WinX DVD Copy Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-identifying-and-fixing-memory-issues-on-your-windows-pc-tech-tips-by-yl-computing/"><u>Step-by-Step Guide: Identifying & Fixing Memory Issues on Your Windows PC - Tech Tips by YL Computing</u></a></li>
-<li><a href="https://blog-min.techidaily.com/step-by-step-guide-resolving-vdvu-cannot-convert-to-digital-error-problems/"><u>Step-by-Step Guide: Resolving 'vDVU Cannot Convert to Digital' Error Problems</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/winning-at-customization-increasing-icon-dimensions-in-w11/"><u>Winning at Customization: Increasing Icon Dimensions in W11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-softwares-ultimate-trick-for-changing-your-computers-interface-language/"><u>YL Software's Ultimate Trick for Changing Your Computer's Interface Language</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-assessing-the-riches-of-mr-beast/"><u>[New] 2024 Approved Assessing the Riches of Mr. Beast</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beat-buzzers-up-and-coming-background-scores-for-yt-shorts/"><u>[Updated] 2024 Approved Beat Buzzers Up-and-Coming Background Scores For YT Shorts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-safely-save-your-streaming-stash-with-these-free-tools/"><u>[Updated] Safely Save Your Streaming Stash with These Free Tools</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diy-guide-upgrading-your-pcs-graphics-with-a-new-gpu-tech-tips-from-yl-computing/"><u>DIY Guide: Upgrading Your PC's Graphics with a New GPU - Tech Tips From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/diy-troubleshooting-reviving-damaged-hard-drives-with-yls-expertise/"><u>DIY Troubleshooting: Reviving Damaged Hard Drives with YL's Expertise</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/enhance-pc-speed-with-extra-ram-essential-guide-from-yl-software-experts/"><u>Enhance PC Speed with Extra RAM: Essential Guide From YL Software Experts</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oneplus-11r-by-drfone-android/"><u>How To Fix OEM Unlock Missing on OnePlus 11R?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo Y200e 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/latest-release-discover-apples-most-recent-macbook-model/"><u>Latest Release: Discover Apple's Most Recent MacBook Model</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/master-your-dj-skills-with-timecode-vinyl-on-pcdj-deck-3/"><u>Master Your DJ Skills with Timecode Vinyl on PCDJ Deck 3</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/open-source-high-quality-visual-effects-apps/"><u>Open Source, High Quality Visual Effects Apps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-guide-updating-your-epson-wf/"><u>Step-by-Step Guide: Updating Your Epson WF-</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-computings-expert-advice-on-choosing-the-ideal-computer-for-gamers/"><u>YL Computing's Expert Advice on Choosing the Ideal Computer for Gamers</u></a></li>
 </ul></div>
 

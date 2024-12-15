@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX3 DJ: A Comprehensive Guide on Adjusting & Editing Font Sizes in Pioneer CDJ"
-date: 2024-12-03T20:05:01.920Z
-updated: 2024-12-09T11:10:36.177Z
+date: 2024-12-12T17:29:39.385Z
+updated: 2024-12-15T16:09:48.734Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ We’ll still attempt to bring you other helpful Digital DJ and karaoke tips dur
 ##### Make sure to check back early next week for the official PCDJ DEX 3 announcement!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,18 +50,20 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/08/learncoverimage.jpg?fit=53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-unraveling-the-mysteries-of-instagram-saved-stories/"><u>[New] Unraveling the Mysteries of Instagram Saved Stories</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-choosing-a-streaming-powerhouse-obs-or-wirecast-for-2024/"><u>[Updated] Choosing a Streaming Powerhouse OBS or Wirecast for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-airdrop-issues-quick-solutions-for-iphoneipadmac-users/"><u>2024 Approved Mastering AirDrop Issues Quick Solutions for iPhone/iPad/Mac Users</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/checking-windows-defender-status-a-guide-to-enablingdisabling-insights-from-yl-computing/"><u>Checking Windows Defender Status: A Guide to Enabling/Disabling - Insights From YL Computing</u></a></li>
-<li><a href="https://win-updates.techidaily.com/complete-step-by-step-tutorial-accessing-your-text-messages-via-icloud/"><u>Complete Step-by-Step Tutorial: Accessing Your Text Messages via iCloud</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/hard-disk-health-management-essential-software-apps-compared-by-tech-wizardry-inc/"><u>Hard Disk Health Management: Essential Software Apps Compared by Tech Wizardry Inc.</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/hd-1080p-fall-themed-screen-savers-and-desktops-high-quality-images-and-graphics-for-your-computer-display/"><u>HD 1080P Fall-Themed Screen Savers and Desktops: High-Quality Images & Graphics for Your Computer Display</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/how-ai-is-set-to-revolutionize-iot-integration-according-to-abbyy-experts/"><u>How AI Is Set to Revolutionize IoT Integration, According to ABBYY Experts</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-broadcasting-fb-movies-on-whatsapp/"><u>In 2024, Broadcasting FB Movies on WhatsApp</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-the-thaumaturge-crash-glitch-expert-advice-for-smooth-gaming-sessions/"><u>Overcoming the Thaumaturge Crash Glitch: Expert Advice for Smooth Gaming Sessions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-guide-fixing-network-detection-problems-with-scanners-by-yl-software/"><u>Troubleshooting Guide: Fixing Network Detection Problems with Scanners by YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-the-tax-implications-of-crypto-trades-a-guide-by-yl-computing/"><u>Understanding the Tax Implications of Crypto Trades: A Guide - By YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-tutorial-customizing-display-properties-through-the-control-panel-with-yl-computing-solutions/"><u>Windows Tutorial: Customizing Display Properties Through the Control Panel with YL Computing Solutions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-gamers-delight-selecting-the-top-10-hddsssds/"><u>[New] In 2024, Gamer's Delight Selecting the Top 10 HDDs/SSDs</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-virtual-vision-creation-shaping-a-humorous-self-portrait/"><u>[New] In 2024, Virtual Vision Creation Shaping a Humorous Self-Portrait</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/egal-steps-for-overcoming-a-youtube-copyright-strike-for-2024/"><u>[New] Legal Steps for Overcoming a YouTube Copyright Strike for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-quick-assembly-of-stunning-google-collages/"><u>[New] Quick Assembly of Stunning Google Collages</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-simplifycast-the-ultimate-guide-to-starting-your-podcast-livestream/"><u>2024 Approved SimplifyCast The Ultimate Guide to Starting Your Podcast Livestream</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-flight-tech-best-drone-gimbals/"><u>2024 Approved Top Flight Tech Best Drone Gimbals</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/boost-your-computers-speed-essential-tips-for-a-sparkling-pc-system-the-expertise-of-yl-computing/"><u>Boost Your Computer's Speed: Essential Tips for a Sparkling PC System - The Expertise of YL Computing</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descubre-el-topo-programa-de-dvd-video-para-windows-11-descarga-su-version-gratuita-ahora/"><u>Descubre El Topo Programa De DVD Video Para Windows 11: ¡Descarga Su Versión Gratuita Ahora!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/get-the-beat-explore-newest-karaoke-selections-from-this-week-3-12-21-with-pcdj-subscription-service/"><u>Get the Beat: Explore Newest Karaoke Selections From This Week (3-12-21) with PCDJ Subscription Service!</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Samsung Galaxy S24+ | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-x-sound-engineer-desktop-suite/"><u>In 2024, X-Sound Engineer Desktop Suite</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/insulating-materials-can-significantly-reduce-heat-loss-from-the-surface-of-curing-concrete/"><u>Insulating Materials Can Significantly Reduce Heat Loss From the Surface of Curing Concrete.</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/premium-space-themed-visual-graphics-ultra-hd-photographs-and-backgrounds-from-yl-softwares-cosmic-series/"><u>Premium Space-Themed Visual Graphics: Ultra HD Photographs and Backgrounds From YL Software's Cosmic Series</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/uyl-computing/"><u>U兄千万年计划：YL Computing的投资哲学及其原创专栏</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/verify-your-rams-health-essential-tips-and-tools-yl-computing-expert-guide/"><u>Verify Your RAM's Health: Essential Tips and Tools - YL Computing Expert Guide</u></a></li>
 </ul></div>
 

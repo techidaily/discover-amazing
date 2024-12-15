@@ -1,7 +1,7 @@
 ---
 title: "Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ"
-date: 2024-12-04T16:14:57.860Z
-updated: 2024-12-08T22:02:42.380Z
+date: 2024-12-09T16:48:21.879Z
+updated: 2024-12-15T17:56:38.406Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ As the Karaoki quick-tip tutorial video explains in detail, you simply create a 
 #### Watch Karaoke Software Quick Tip: Creating Custom Playlists In PCDJ Karaoki
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,24 +44,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/03/karaokiquicktip-customlist
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/updated-a-guide-to-sustaining-longer-gopro-battery-life/"><u>[Updated] A Guide to Sustaining Longer GoPro Battery Life</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-master-screen-capture-detailed-tutorial-walkthrough/"><u>2024 Approved Master Screen Capture Detailed Tutorial Walkthrough</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/anticipated-apples-domestic-robot-unveiling-potential-cost-launch-timeline-and-features-revealed/"><u>Anticipated Apple's Domestic Robot Unveiling: Potential Cost, Launch Timeline & Features Revealed</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diagnosing-and-fixing-gpu-errors-in-windows-11-with-yl-softwares-step-by-step-tutorial/"><u>Diagnosing and Fixing GPU Errors in Windows 지급자인형 11 with YL Software's Step-by-Step Tutorial</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diagnosing-failed-launches-in-apps-expert-advice-from-yl-software-team/"><u>Diagnosing Failed Launches in Apps: Expert Advice From YL Software Team</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1722895445470-discover-the-ideal-note-capturing-tools-on-ipad-and-ipad-pro/"><u>Discover the Ideal Note-Capturing Tools on iPad and iPad Pro</u></a></li>
-<li><a href="https://win-bytes.techidaily.com/exclusive-dj-membership-access-new-karaoke-tracks-and-song-selection-guide-updated-feb-28th-2na/"><u>Exclusive DJ Membership Access: New Karaoke Tracks & Song Selection Guide | Updated Feb 28Th, 2N/A!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-fix-a-malfunctioning-graphics-card-installation-tips-by-yl-software/"><u>How to Fix a Malfunctioning Graphics Card Installation, Tips by YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-to-resolve-unrecognized-scanner-issues-with-your-pc-expert-tips-from-yl-computing/"><u>How To Resolve Unrecognized Scanner Issues with Your PC - Expert Tips From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/identifying-and-resolving-hardware-clashes-a-comprehensive-guide-tips-by-yl-computing/"><u>Identifying and Resolving Hardware Clashes: A Comprehensive Guide - Tips by YL Computing</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-staying-serene-in-meetings-master-the-art-of-quieting-others-in-google-video-conversations/"><u>In 2024, Staying Serene in Meetings Master the Art of Quieting Others in Google Video Conversations</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-nokia-c210-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Nokia C210 Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/techniques-simples-pour-telecharger-en-ligne-des-films-youtube-sans-frais-guide-complet-sur-ordinateur-smartphone-ou-tablette/"><u>Techniques Simples Pour Télécharger En Ligne Des Films YouTube Sans Frais : Guide Complet Sur Ordinateur, Smartphone Ou Tablette</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/the-ultimate-checklist-for-hardware-care-insights-from-yl-software-experts/"><u>The Ultimate Checklist for Hardware Care: Insights From YL Software Experts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-ultimate-connectivity-handbook-for-insta-and-tik/"><u>The Ultimate Connectivity Handbook for Insta & Tik</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/top-ranked-ultimate-guide-to-professional-photo-editing-transform-your-images-with-these-background-switchers/"><u>Top-Ranked Ultimate Guide to Professional Photo Editing: Transform Your Images with These Background Switchers</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-psu-faults-a-deep-dive-by-yl-computing/"><u>Understanding PSU Faults: A Deep Dive by YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unlock-the-secrets-of-audio-file-management-yl-software-mastery-techniques-for-opening-sounds-and-music/"><u>Unlock the Secrets of Audio File Management - YL Software Mastery Techniques for Opening Sounds and Music</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/upcoming-release-alert-yl-computing-announces-january-2024-shipment-date-for-bitmains-cutting-edge-antminer-t21/"><u>Upcoming Release Alert: YL Computing Announces January 2024 Shipment Date for Bitmain’s Cutting-Edge Antminer T21</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-capturing-content-the-leading-online-television-recordings/"><u>[New] In 2024, Capturing Content The Leading Online Television Recordings</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-depth-app-investigation-via-az-screen-recorder-for-2024/"><u>[New] In-Depth App Investigation via AZ Screen Recorder for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-the-soundbite-revolution-key-strategies-for-youtubes-music-clips/"><u>2024 Approved The Soundbite Revolution Key Strategies for YouTube's Music Clips</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-ultimate-list-for-capturing-instagram-vids-pcmac/"><u>2024 Approved The Ultimate List for Capturing Instagram Vids (PC/Mac)</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/configuring-your-windows-computers-sound-options-in-the-control-panel-digital-dynamo-tips-and-tricks/"><u>Configuring Your Windows Computer's Sound Options in the Control Panel - Digital Dynamo Tips & Tricks</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/discover-the-ultimate-mix-12-unmissable-songs-with-bpm-supremes-productions-on-beatport-digi-dj/"><u>Discover the Ultimate Mix: 12 Unmissable Songs with BPM Supreme's Productions on Beatport | Digi DJ</u></a></li>
+<li><a href="https://driver-error.techidaily.com/enabling-sound-device-in-windows-10-via-usb-connection/"><u>Enabling Sound Device in Windows 10 via USB Connection</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-the-frustrating-access-is-denied-during-usb-installation-process/"><u>Fixing the Frustrating 'Access Is Denied' During USB Installation Process</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/hilarious-internet-memes-top-pick-background-wallpapers-and-desktop-icons-yls-digital-collection/"><u>Hilarious Internet Memes: Top Pick Background Wallpapers and Desktop Icons - YL's Digital Collection</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-contacts-from-spark-20-by-fonelab-android-recover-contacts/"><u>How to get back lost contacts from Spark 20.</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-identify-and-fix-a-computer-virus-thats-causing-performance-issues-insights-from-yl-computing/"><u>How to Identify & Fix a Computer Virus That's Causing Performance Issues: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/identifying-your-installed-graphics-card-a-step-by-step-guide-tech-insights-with-yl/"><u>Identifying Your Installed Graphics Card: A Step-by-Step Guide - Tech Insights with YL</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-learn-to-link-zoom-effortlessly-with-email-clients-like-gmail/"><u>In 2024, Learn to Link Zoom Effortlessly with Email Clients Like Gmail</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/key-figures-in-the-taiping-uprising-unveiling-the-commanders-behind-the-movement-insights-by-yl-tech/"><u>Key Figures in the Taiping Uprising: Unveiling the Commanders Behind the Movement - Insights by YL Tech</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-multilingual-support-altering-language-settings-in-the-systems-control-panel-with-expertise-by-yl-software/"><u>Mastering Multilingual Support: Altering Language Settings in the System's Control Panel with Expertise by YL Software</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resolving-lack-of-audio-in-windows-os-tips-and-solutions-by-yl-software-experts/"><u>Resolving Lack of Audio in Windows OS - Tips and Solutions by YL Software Experts</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-by-yl-software-for-easy-scanner-setup-and-optimization/"><u>Step-by-Step Tutorial by YL Software for Easy Scanner Setup and Optimization</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-verdict-on-video-clips-a-deep-dive-into-inshots-performance-for-2024/"><u>The Verdict on Video Clips A Deep Dive Into InShot's Performance for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/troubleshooting-undetected-hardware-issues-a-guide-by-yl-computing/"><u>Troubleshooting Undetected Hardware Issues: A Guide by YL Computing</u></a></li>
 </ul></div>
 
