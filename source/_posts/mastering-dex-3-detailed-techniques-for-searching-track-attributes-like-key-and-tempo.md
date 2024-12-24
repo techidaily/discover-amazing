@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2024-12-12T16:41:40.128Z
-updated: 2024-12-15T18:30:05.066Z
+date: 2024-12-23T16:01:58.092Z
+updated: 2024-12-24T16:06:30.734Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,18 +59,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-assessing-the-riches-of-mr-beast/"><u>[New] 2024 Approved Assessing the Riches of Mr. Beast</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-beat-buzzers-up-and-coming-background-scores-for-yt-shorts/"><u>[Updated] 2024 Approved Beat Buzzers Up-and-Coming Background Scores For YT Shorts</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-safely-save-your-streaming-stash-with-these-free-tools/"><u>[Updated] Safely Save Your Streaming Stash with These Free Tools</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diy-guide-upgrading-your-pcs-graphics-with-a-new-gpu-tech-tips-from-yl-computing/"><u>DIY Guide: Upgrading Your PC's Graphics with a New GPU - Tech Tips From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diy-troubleshooting-reviving-damaged-hard-drives-with-yls-expertise/"><u>DIY Troubleshooting: Reviving Damaged Hard Drives with YL's Expertise</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/enhance-pc-speed-with-extra-ram-essential-guide-from-yl-software-experts/"><u>Enhance PC Speed with Extra RAM: Essential Guide From YL Software Experts</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-fix-oem-unlock-missing-on-oneplus-11r-by-drfone-android/"><u>How To Fix OEM Unlock Missing on OnePlus 11R?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-vivo-y200e-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Vivo Y200e 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/latest-release-discover-apples-most-recent-macbook-model/"><u>Latest Release: Discover Apple's Most Recent MacBook Model</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/master-your-dj-skills-with-timecode-vinyl-on-pcdj-deck-3/"><u>Master Your DJ Skills with Timecode Vinyl on PCDJ Deck 3</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/open-source-high-quality-visual-effects-apps/"><u>Open Source, High Quality Visual Effects Apps</u></a></li>
-<li><a href="https://driver-download.techidaily.com/step-by-step-guide-updating-your-epson-wf/"><u>Step-by-Step Guide: Updating Your Epson WF-</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-computings-expert-advice-on-choosing-the-ideal-computer-for-gamers/"><u>YL Computing's Expert Advice on Choosing the Ideal Computer for Gamers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-audiovisual-success-recording-gotomeetings-easily/"><u>[New] Audiovisual Success Recording GoToMeetings Easily</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-best-undiscovered-speech-to-text-apps-on-your-mac/"><u>[New] The Best Undiscovered Speech-to-Text Apps on Your Mac</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-youtube-mastery-essential-tech-to-enhance-your-streams/"><u>[Updated] YouTube Mastery Essential Tech to Enhance Your Streams</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-a-deep-dive-into-magix-music-production-tools/"><u>2024 Approved A Deep Dive Into Magix Music Production Tools</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/choosing-the-right-power-supply-essential-tips-for-your-gpu-explore-with-yl-computing/"><u>Choosing the Right Power Supply: Essential Tips for Your GPU - Explore with YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/effective-techniques-to-eliminate-pre-installed-software-and-boost-pc-efficiency-guidance-by-yl-computing/"><u>Effective Techniques to Eliminate Pre-Installed Software & Boost PC Efficiency - Guidance by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/essential-tips-how-to-lower-your-pcs-overheating-issues-insights-by-yl-computing/"><u>Essential Tips: How to Lower Your PC's Overheating Issues - Insights by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/expand-your-music-library-over-2700-new-songs-now-available-on-karaoke-cloud-pro/"><u>Expand Your Music Library: Over 2,700 New Songs Now Available on Karaoke Cloud Pro!</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-apple-iphone-15-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-a-samsung-galaxy-m34-easily-by-drfone-android/"><u>How To Unlock a Samsung Galaxy M34 Easily?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-art-of-amassing-attention-on-ig-a-guide-for-a-thousand-likesmonth/"><u>In 2024, The Art of Amassing Attention on IG A Guide for a Thousand Likes/Month</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/master-your-karaoke-sets-easy-steps-for-building-custom-playlist-menus-with-pcdj/"><u>Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-crypto-assets-top-strategies-revealed-by-professionals-at-yl-computing-and-yl-software/"><u>Mastering Crypto Assets: Top Strategies Revealed by Professionals at YL Computing and YL Software</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/navigating-through-music-tech-top-7-daws-for-fostering-exceptional-guitar-recordings-updated/"><u>Navigating Through Music Tech Top 7 DAWs for Fostering Exceptional Guitar Recordings (Updated)</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/step-by-step-process-to-determine-your-iphones-next-level/"><u>Step-by-Step Process to Determine Your iPhone's Next Level</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/stunning-4k-landscape-visuals-for-desktop-backgrounds-and-inspirational-images-powered-by-yl-software-technologies/"><u>Stunning 4K Landscape Visuals for Desktop Backgrounds and Inspirational Images - Powered by YL Software Technologies</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-10-methods-to-integrate-chatgpt-with-visual-studio-code/"><u>Top 10 Methods to Integrate ChatGPT with Visual Studio Code</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unique-galaxy-inspired-hipster-photo-backgrounds-for-pc-laptops-powered-by-yl-software-solutions/"><u>Unique Galaxy-Inspired Hipster Photo Backgrounds for PC, Laptops – Powered by YL Software Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-softwares-ultimate-tutorial-for-accessing-and-playing-videos-on-smartphones/"><u>YL Software's Ultimate Tutorial for Accessing and Playing Videos on Smartphones</u></a></li>
 </ul></div>
 
