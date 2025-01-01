@@ -1,7 +1,7 @@
 ---
 title: Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase
-date: 2024-12-03T20:41:27.168Z
-updated: 2024-12-08T20:45:55.929Z
+date: 2024-12-28T18:51:41.237Z
+updated: 2024-12-29T22:15:53.673Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,24 +46,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-next-gen-escapades-upcoming-best-playstation-vr-games-to-try/"><u>[Updated] 2024 Approved Next-Gen Escapades Upcoming Best PlayStation VR Games to Try</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-pro-video-capture-a-comprehensive-fraps-test/"><u>2024 Approved Pro Video Capture A Comprehensive Fraps Test</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/a-simple-tutorial-starting-screen-recording-on-mac/"><u>A Simple Tutorial Starting Screen Recording on Mac</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/build-your-own-crypto-trading-hub-expert-strategies-from-yl-computings-guide/"><u>Build Your Own Crypto Trading Hub: Expert Strategies From YL Computing's Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/crea-file-audiolibere-convertendo-video-mp4-a-formato-m4b-scarica-il-tuo-utilizzo-gratuito-di-movavi/"><u>Crea File AudioLibere Convertendo Video MP4 a Formato M4B: Scarica Il Tuo Utilizzo Gratuito Di Movavi</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/easy-guide-to-personalizing-your-screen-on-windows-tips-from-yl-computing/"><u>Easy Guide to Personalizing Your Screen on Windows - Tips From YL Computing</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/forgotten-the-voicemail-password-of-realme-narzo-60x-5g-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Realme Narzo 60x 5G? Try These Fixes</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/guide-to-smooth-playthroughs-overcoming-frame-rate-fluctuations-and-hesitations-in-call-of-duty-modern-warfare-2-on-pc-systems/"><u>Guide to Smooth Playthroughs: Overcoming Frame Rate Fluctuations and Hesitations in Call of Duty Modern Warfare ^2 on PC Systems</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/209857935-9780692063705-how-to-become-who-you-are/"><u>How to become who you are | Free Book</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/identifying-your-installed-graphics-card-a-step-by-step-guide-tech-insights-with-yl/"><u>Identifying Your Installed Graphics Card: A Step-by-Step Guide - Tech Insights with YL</u></a></li>
-<li><a href="https://fox-links.techidaily.com/in-2024-mastering-sound-top-10-microphones/"><u>In 2024, Mastering Sound Top 10 Microphones</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/key-figures-in-the-taiping-uprising-unveiling-the-commanders-behind-the-movement-insights-by-yl-tech/"><u>Key Figures in the Taiping Uprising: Unveiling the Commanders Behind the Movement - Insights by YL Tech</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/mastering-empathy-utilizing-chatgpt-for-building-better-emotional-awareness/"><u>Mastering Empathy: Utilizing ChatGPT for Building Better Emotional Awareness</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/navigating-the-world-of-crypto-security-with-guidance-from-yl-software-experts/"><u>Navigating the World of Crypto-Security with Guidance From YL Software Experts</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/pioneering-through-the-terrain-of-mixed-reality-for-2024/"><u>Pioneering Through the Terrain of Mixed Reality for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resolving-lack-of-audio-in-windows-os-tips-and-solutions-by-yl-software-experts/"><u>Resolving Lack of Audio in Windows OS - Tips and Solutions by YL Software Experts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solutions-for-fixing-silent-speakers-expert-advice-from-yl-computing/"><u>Solutions for Fixing Silent Speakers: Expert Advice From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-by-yl-software-for-easy-scanner-setup-and-optimization/"><u>Step-by-Step Tutorial by YL Software for Easy Scanner Setup and Optimization</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/top-recommended-pc-maintenance-programs-find-your-perfect-tool-insights-by-yl/"><u>Top Recommended PC Maintenance Programs: Find Your Perfect Tool - Insights by YL</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-directly-stream-webcam-feed-with-vlc-software/"><u>[New] In 2024, Directly Stream Webcam Feed with VLC Software</u></a></li>
+<li><a href="https://win11.techidaily.com/beginning-your-art-with-ms-paint-windows-11-way/"><u>Beginning Your Art with MS Paint - Windows 11 Way</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/boost-your-computer-efficiency-adjust-power-settings-with-guidance-from-yl-software-experts/"><u>Boost Your Computer Efficiency: Adjust Power Settings with Guidance From YL Software Experts</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ensuring-privacy-with-windows-11-expert-tips-from-yl-softwares-latest-article/"><u>Ensuring Privacy with Windows 11: Expert Tips From YL Software's Latest Article</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Nokia G42 5G | Dr.fone</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/mastering-data-recovery-a-step-by-step-guide-to-windows-1011-file-backups-and-system-restores/"><u>Mastering Data Recovery: A Step-by-Step Guide to Windows 10/11 File Backups and System Restores</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/mastering-memory-management-in-your-programs-with-expert-tips-from-yl-software-experts/"><u>Mastering Memory Management in Your Programs with Expert Tips From YL Software Experts</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-revolutionize-your-videos-top-3d-animation-makers-revealed/"><u>New Revolutionize Your Videos Top 3D Animation Makers Revealed</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/ram-wear-and-tear-detection-timely-upgrades-explained-by-yl-software-specialists/"><u>RAM Wear and Tear Detection: Timely Upgrades Explained by YL Software Specialists</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resolving-scanner-and-computer-connection-issues-a-comprehensive-guide-expert-advice-from-yl-computing/"><u>Resolving Scanner & Computer Connection Issues: A Comprehensive Guide - Expert Advice From YL Computing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revive-the-experience-essential-tips-for-lost-iphone-x-users/"><u>Revive the Experience Essential Tips for Lost iPhone X Users</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/revolutionize-your-network-with-netgears-powerful-nighthawk-x10-ad7200-a-detailed-performance-review/"><u>Revolutionize Your Network With Netgear's Powerful Nighthawk X10 (AD7200) - A Detailed Performance Review!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/troubleshooting-and-repairing-windows-device-drivers-with-guidance-by-yl-software-experts/"><u>Troubleshooting and Repairing Windows Device Drivers with Guidance by YL Software Experts</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-of-netgear-c370n-more-than-just-a-cable-modem/"><u>Unpacking the Features of Netgear C370n: More than Just a Cable Modem</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/upgrade-from-2k-to-4k-top-tools-and-techniques-for-high-quality-conversion-on-pc-and-mac/"><u>Upgrade From 2K to 4K: Top Tools and Techniques for High-Quality Conversion on PC & Mac</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-computings-step-by-step-instructions-for-enabling-family-safety-settings-in-the-control-panel/"><u>YL Computing's Step-by-Step Instructions for Enabling Family Safety Settings in the Control Panel</u></a></li>
 </ul></div>
 

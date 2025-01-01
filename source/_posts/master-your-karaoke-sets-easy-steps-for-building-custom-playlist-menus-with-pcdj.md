@@ -1,7 +1,7 @@
 ---
 title: "Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ"
-date: 2024-12-20T16:00:00.429Z
-updated: 2024-12-24T16:00:27.461Z
+date: 2024-12-26T04:20:16.535Z
+updated: 2024-12-30T01:48:23.269Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ As the Karaoki quick-tip tutorial video explains in detail, you simply create a 
 #### Watch Karaoke Software Quick Tip: Creating Custom Playlists In PCDJ Karaoki
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,22 +44,16 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/03/karaokiquicktip-customlist
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/he-editors-journey-mastering-the-art-of-youtube-cuts-for-2024/"><u>[New] The Editor's Journey Mastering the Art of Youtube Cuts for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-five-mac-friendly-strategies-for-documenting-minecraft-games-for-2024/"><u>[Updated] Five Mac-Friendly Strategies for Documenting Minecraft Games for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/configuring-your-windows-computers-sound-options-in-the-control-panel-digital-dynamo-tips-and-tricks/"><u>Configuring Your Windows Computer's Sound Options in the Control Panel - Digital Dynamo Tips & Tricks</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-tactics-for-obtaining-a-refund-on-fb/"><u>Effective Tactics for Obtaining a Refund on FB</u></a></li>
-<li><a href="https://extra-information.techidaily.com/enchanted-frame-rate-reduction-tricks/"><u>Enchanted Frame Rate Reduction Tricks</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/enhance-and-resize-videos-using-gpu-power-discover-the-advanced-features-of-winx-deluxe-video-converter-hd/"><u>Enhance and Resize Videos Using GPU Power - Discover the Advanced Features of WinX Deluxe Video Converter HD</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/identifying-your-installed-graphics-card-a-step-by-step-guide-tech-insights-with-yl/"><u>Identifying Your Installed Graphics Card: A Step-by-Step Guide - Tech Insights with YL</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-honor-x7b-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Honor X7b</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/key-figures-in-the-taiping-uprising-unveiling-the-commanders-behind-the-movement-insights-by-yl-tech/"><u>Key Figures in the Taiping Uprising: Unveiling the Commanders Behind the Movement - Insights by YL Tech</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-multilingual-support-altering-language-settings-in-the-systems-control-panel-with-expertise-by-yl-software/"><u>Mastering Multilingual Support: Altering Language Settings in the System's Control Panel with Expertise by YL Software</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/redefining-high-definition-with-samsungs-ubd-k850u-update/"><u>Redefining High Definition with Samsung's UBD K850U Update</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resolving-lack-of-audio-in-windows-os-tips-and-solutions-by-yl-software-experts/"><u>Resolving Lack of Audio in Windows OS - Tips and Solutions by YL Software Experts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solutions-for-fixing-silent-speakers-expert-advice-from-yl-computing/"><u>Solutions for Fixing Silent Speakers: Expert Advice From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-by-yl-software-for-easy-scanner-setup-and-optimization/"><u>Step-by-Step Tutorial by YL Software for Easy Scanner Setup and Optimization</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-undetected-hardware-issues-a-guide-by-yl-computing/"><u>Troubleshooting Undetected Hardware Issues: A Guide by YL Computing</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/unlocking-snapchat-features-for-pc-users-the-complete-instructional-guide/"><u>Unlocking Snapchat Features for PC Users – The Complete Instructional Guide</u></a></li>
-<li><a href="https://howto.techidaily.com/why-does-my-honor-magic-v2-keep-turning-off-by-itself-6-fixes-are-here-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Does My Honor Magic V2 Keep Turning Off By Itself? 6 Fixes Are Here | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-ultimate-guide-to-no-ad-android-video-tools/"><u>[New] 2024 Approved Ultimate Guide to No-Ad Android Video Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-glimmering-glides-of-2022s-speed-skaters/"><u>[New] In 2024, Glimmering Glides of 2022'S Speed Skaters</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-huntings-top-5-high-quality-video-recorders/"><u>[Updated] Hunting's Top 5 High-Quality Video Recorders</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/a-step-by-step-tutorial-on-customizing-display-preferences-with-yl-software-solutions/"><u>A Step-by-Step Tutorial on Customizing Display Preferences with YL Software Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/configuring-audio-and-sound-options-via-the-control-panel-a-guide-by-yl-computing/"><u>Configuring Audio & Sound Options via the Control Panel: A Guide by YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/determining-if-your-gpu-drivers-are-current-insights-from-yl-computing/"><u>Determining If Your GPU Drivers Are Current - Insights From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/easy-guide-configuring-parent-controls-via-windows-control-panel-tips-from-yl-computing/"><u>Easy Guide: Configuring Parent Controls via Windows Control Panel - Tips From YL Computing</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-from-gaming-to-adventure-the-power-of-the-new-polaroid-xs-100i/"><u>In 2024, From Gaming to Adventure, the Power of the New Polaroid XS 100I</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-call-logs-from-gt-10-pro-by-fonelab-android-recover-call-logs/"><u>Possible solutions to restore deleted call logs from GT 10 Pro</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/stunning-high-definition-bubble-wallpapers-and-hd-imagery-library-yl-software-visuals/"><u>Stunning High Definition Bubble Wallpapers and HD Imagery Library - YL Software Visuals</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-shift-from-rgb-to-srgb-in-digital-imaging/"><u>The Shift From Rgb to Srgb in Digital Imaging</u></a></li>
 </ul></div>
 
