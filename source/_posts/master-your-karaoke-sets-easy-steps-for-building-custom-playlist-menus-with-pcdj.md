@@ -1,7 +1,7 @@
 ---
 title: "Master Your Karaoke Sets: Easy Steps for Building Custom Playlist Menus with PCDJ"
-date: 2024-12-27T16:04:54.253Z
-updated: 2025-01-01T17:02:45.051Z
+date: 2024-12-28T22:27:30.166Z
+updated: 2025-01-01T20:56:39.824Z
 tags:
   - product
 categories:
@@ -22,7 +22,7 @@ As the Karaoki quick-tip tutorial video explains in detail, you simply create a 
 #### Watch Karaoke Software Quick Tip: Creating Custom Playlists In PCDJ Karaoki
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -44,22 +44,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2015/03/karaokiquicktip-customlist
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-skills.techidaily.com/new-ultimate-youtube-video-titles-creator-tools/"><u>[New] Ultimate YouTube Video Titles Creator Tools</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlock-your-potential-with-outstanding-instagram-visuals-for-2024/"><u>[Updated] Unlock Your Potential with Outstanding Instagram Visuals for 2024</u></a></li>
-<li><a href="https://win-awesome.techidaily.com/boost-your-scanning-speed-with-advanced-techniques-by-yl-software-experts/"><u>Boost Your Scanning Speed with Advanced Techniques by YL Software Experts</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/breaking-the-cycle-or-not-ideas-for-snapstreaks/"><u>Breaking the Cycle - Or Not? Ideas for Snapstreaks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/discover-advanced-dj-features-with-pcdjs-dex-3-sampler-free-trial-video-showcase/"><u>Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase</u></a></li>
-<li><a href="https://media-tips.techidaily.com/enjoy-nfl-games-on-sundays-for-free-special-promotion-from-verizon/"><u>Enjoy NFL Games on Sundays For Free – Special Promotion From Verizon!</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/exploring-the-finest-text-to-speech-male-voice-tools-for-natural-output/"><u>Exploring the Finest Text-to-Speech Male Voice Tools for Natural Output</u></a></li>
-<li><a href="https://win-brilliant.techidaily.com/how-can-updating-your-software-and-drivers-boost-your-pcs-performance-insights-from-yl-computing/"><u>How Can Updating Your Software & Drivers Boost Your PC's Performance: Insights From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-control-panel-a-beginners-tutorial-for-finding-device-manager-in-windows-11-by-yl-software-experts/"><u>Mastering Control Panel: A Beginner's Tutorial for Finding Device Manager in Windows 11 by YL Software Experts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-the-windows-registry-easy-entry-methods-for-tech-enthusiasts-yl-software-insights/"><u>Mastering the Windows Registry: Easy Entry Methods for Tech Enthusiasts - YL Software Insights</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/nulaxy-km18-fm-transmitter-user-guide-insights-on-a-dependable-classic-model/"><u>Nulaxy KM18 FM Transmitter User Guide: Insights on a Dependable Classic Model</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/quick-tips-accelerate-your-sluggish-windows-pc-with-simple-techniques-guided-by-yl-computing/"><u>Quick Tips: Accelerate Your Sluggish Windows PC with Simple Techniques - Guided by YL Computing</u></a></li>
-<li><a href="https://fox-http.techidaily.com/scrutinizing-hdr-performance-in-luminance-tech-for-2024/"><u>Scrutinizing HDR Performance in Luminance Tech for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-installing-your-graphics-cards-latest-drivers-tips-from-yl-computing/"><u>Step-by-Step Guide: Installing Your Graphics Card's Latest Drivers - Tips From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/tailoring-system-aesthetics-the-ultimate-tutorial-for-windows-control-panel-tweaks/"><u>Tailoring System Aesthetics: The Ultimate Tutorial for Windows Control Panel Tweaks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-guide-for-broken-graphics-cards-by-professionals-at-yl-software/"><u>Troubleshooting Guide for Broken Graphics Cards by Professionals at YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unexpected-screen-blackouts-understanding-your-computer-display-issues-expert-insights-from-yl-computing/"><u>Unexpected Screen Blackouts: Understanding Your Computer Display Issues - Expert Insights From YL Computing</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-interactive-content-platform-audit-and-rating-for-2024/"><u>[New] Interactive Content Platform Audit & Rating for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-cutting-edge-video-tools-opt-for-studio-or-latest-beta-version/"><u>[Updated] 2024 Approved Cutting-Edge Video Tools Opt for Studio or Latest Beta Version</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-how-to-smoothly-transition-sounds-with-audition-for-2024/"><u>[Updated] How to Smoothly Transition Sounds with Audition for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-perfecting-your-digital-doppelganger-a-complete-guide-to-cloning-oneself-on-tiktok/"><u>2024 Approved Perfecting Your Digital Doppelgänger A Complete Guide to Cloning Oneself on TikTok</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultra-clarity-the-new-era-of-hd-monitors-envy-27/"><u>2024 Approved Ultra Clarity The New Era of HD Monitors - Envy 27</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-teach-you-to-transfer-files-from-vivo-g2-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways To Teach You To Transfer Files from Vivo G2 to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/macx800/"><u>限定キャンペーン：MacX動画変換プロの特別企画！800個分無料提供</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/boosting-visuals-high-definition-on-twitter-vids-for-2024/"><u>Boosting Visuals High-Definition on Twitter Vids for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/convert-and-compact-dvds-into-mobile-ready-videos-for-apple-devices/"><u>Convert & Compact DVDs Into Mobile-Ready Videos for Apple Devices</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/easy-videoproc-windows-windowsvideoproc/"><u>Easy VideoProc Windows導入マニュアル - Windows版VideoProcを簡単にダウンロードして設置する方法</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/effizientes-iphone-bildmanagement-umgehend-ladenlos-entfernen-dank-ios-15-features/"><u>Effizientes iPhone-Bildmanagement – Umgehend Ladenlos Entfernen Dank IOS 15 Features</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/extraction-of-dvd-audio-on-macos-free-ripper-tool/"><u>Extraction of DVD Audio on macOS - Free Ripper Tool</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/how-to-resolve-non-charging-problems-on-your-iphone-a-comprehensive-guide/"><u>How To Resolve Non-Charging Problems on Your iPhone: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-top-10-steps-to-design-free-youtube-video-ads/"><u>In 2024, Top 10 Steps to Design Free YouTube Video Ads</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/pro-drone-guide-unveiling-the-top-5-picks-for-you-for-2024/"><u>Pro Drone Guide Unveiling the Top 5 Picks for You for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/seamless-transition-how-to-swiftly-move-from-iphone-to-android/"><u>Seamless Transition: How to Swiftly Move From iPhone to Android</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-converting-your-dvds-into-iso-files-using-macos/"><u>Step-by-Step Guide: Converting Your DVDs Into ISO Files Using macOS</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-asus-zenwifi-ax6600-xt8-revealed-setting-new-standards-in-advanced-wi-fi-setups/"><u>The ASUS ZenWiFi AX6600 (XT8) Revealed - Setting New Standards in Advanced Wi-Fi Setups</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-5-methods-for-streaming-films-from-your-apple-tv-using-macos-ios-and-ipados-devices/"><u>Top 5 Methods for Streaming Films From Your Apple TV Using macOS, iOS & iPadOS Devices</u></a></li>
 </ul></div>
 

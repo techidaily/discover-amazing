@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2024-12-26T16:36:51.320Z
-updated: 2025-01-01T17:25:19.476Z
+date: 2024-12-31T21:28:20.579Z
+updated: 2025-01-01T17:45:01.482Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,21 +59,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-streamlined-recording-the-very-best-fullscreen-software/"><u>[New] 2024 Approved Streamlined Recording The Very Best Fullscreen Software</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-elevate-your-livestream-experience-a-list-of-top-6-sound-gadgets/"><u>[Updated] Elevate Your Livestream Experience A List of Top 6 Sound Gadgets</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-start-broadcasting-now-instagram-live-guide/"><u>2024 Approved Start Broadcasting Now Instagram Live Guide</u></a></li>
-<li><a href="https://win-reviews.techidaily.com/6ygl55so6zuy5pyn5yuz5a6j5ywo6ksh6ko96zu76iwm57o757wx5qqu5qgi55qe5pa55rov/"><u>運用雲服務安全複製電腦系統檔案的方法</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/boost-your-computers-efficiency-with-pro-disk-optimization-tips-from-yl-software-experts/"><u>Boost Your Computer's Efficiency with Pro Disk Optimization Tips From YL Software Experts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/diagnosing-scanner-detection-issues-on-windows-expert-advice-from-yl-software/"><u>Diagnosing Scanner Detection Issues on Windows: Expert Advice From YL Software</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-best-websites-to-stream-music-videos-free/"><u>Discover the Best Websites to Stream Music Videos Free</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/1728479465064-excel/"><u>Excelデータ損失回避 - システムに侵入したバグからの修復手法</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/full-guide-to-unlock-apple-iphone-8-plus-with-itunes-by-drfone-ios/"><u>Full Guide to Unlock Apple iPhone 8 Plus with iTunes</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/how-necessary-is-it-to-set-up-antivirus-protection-on-your-pc-insights-by-yl-tech-solutions/"><u>How Necessary Is It to Set Up Antivirus Protection on Your PC? - Insights by YL Tech Solutions</u></a></li>
-<li><a href="https://games-able.techidaily.com/optimal-monitors-gameplay-at-165hz/"><u>Optimal Monitors: Gameplay at 165Hz</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/seize-the-opportunity-unbeatable-best-buy-offers-for-the-premier-sales-event-of-october-2024-grab-them-while-they-last/"><u>Seize the Opportunity: Unbeatable Best Buy Offers for the Premier Sales Event of October 2024 - Grab Them While They Last!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solving-device-overheat-issues-expert-tips-from-yl-computings-tech-specialists/"><u>Solving Device Overheat Issues: Expert Tips From YL Computing's Tech Specialists</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/solving-memory-malfunctions-discover-why-your-ram-may-be-failing-with-insights-from-yl-technology/"><u>Solving Memory Malfunctions: Discover Why Your RAM May Be Failing with Insights From YL Technology</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/understanding-the-key-elements-of-the-windows-registry-an-in-depth-look-yl-tech-insights/"><u>Understanding the Key Elements of the Windows Registry: An In-Depth Look - YL Tech Insights</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1732517476265-ylyl/"><u>YL软件如何定制植入式广告创意——精选YL计算机专业建议</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-ai-driven-nomenclature-best-10-name-generators-online-for-2024/"><u>[New] AI-Driven Nomenclature Best 10 Name Generators Online for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-dell-p2715q-4k-monitor-review/"><u>[Updated] 2024 Approved Dell P2715Q 4K Monitor Review</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/dvdwindows10112/"><u>最新DVD編集技術ガイド：Windows10/11用の上位2つの編集プログラムを見てみよう</u></a></li>
+<li><a href="https://win-dash.techidaily.com/access-free-radeon-graphics-driver-software-for-amd-under-windows-8/"><u>Access Free Radeon Graphics Driver Software for AMD Under Windows 8</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/dvdiso/"><u>DVDディスクからISO画像への変換手順</u></a></li>
+<li><a href="https://games-able.techidaily.com/effortless-game-streaming-on-your-iosandroid-device/"><u>Effortless Game Streaming on Your iOS/Android Device</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/expert-strategies-for-quick-and-easy-mov-file-transformation-into-mp3-format-on-mac-devices/"><u>Expert Strategies for Quick and Easy MOV File Transformation Into MP3 Format on Mac Devices</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-close-up-views-in-roblox-games/"><u>In 2024, Mastering Close-Up Views in Roblox Games</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/powerdirector-pro-detailed-reviews-and-step-by-step-guides-for-2024/"><u>PowerDirector Pro Detailed Reviews and Step-by-Step Guides for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/speed-up-conversions-harness-the-power-of-winxvideo-ais-gpu-acceleration-for-videoaudio-editing/"><u>Speed Up Conversions: Harness the Power of WinxVideo AI's GPU Acceleration for Video/Audio Editing</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/t-mobile-metro-unrestricted-network-access-and-global-roaming-guidelines/"><u>T-Mobile Metro Unrestricted Network Access & Global Roaming Guidelines</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/tecnologia-inteligente-al-alcance-licencia-completa-de-winxvideo-ai-y-sus-nueva-actualizacion-sin-costo/"><u>Tecnología Inteligente Al Alcance: Licencia Completa De Winxvideo AI Y Sus Nueva Actualización Sin Costo</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-free-tools-for-dvd-to-mp3-conversion-without-compromising-quality/"><u>Top Free Tools for DVD-to-MP3 Conversion without Compromising Quality</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-create-unforgettable-dvds-the-ultimate-movie-making-software-guide/"><u>Updated 2024 Approved Create Unforgettable DVDs The Ultimate Movie Making Software Guide</u></a></li>
 </ul></div>
 
