@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX3 DJ: A Comprehensive Guide on Adjusting & Editing Font Sizes in Pioneer CDJ"
-date: 2024-12-27T19:09:40.638Z
-updated: 2024-12-29T23:37:11.692Z
+date: 2024-12-31T16:21:23.344Z
+updated: 2025-01-01T16:24:37.155Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ We’ll still attempt to bring you other helpful Digital DJ and karaoke tips dur
 ##### Make sure to check back early next week for the official PCDJ DEX 3 announcement!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,17 +50,24 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/08/learncoverimage.jpg?fit=53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://windows11.techidaily.com/bring-forth-the-forgotten-floppy-drive-sdds-in-winos/"><u>Bring Forth the Forgotten Floppy Drive, SDDs in WinOS</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/cambia-archivos-de-ogg-a-formato-animado-gif-sin-coste-con-herramientas-online-facil-de-uso/"><u>Cambia Archivos De OGG a Formato Animado GIF Sin Coste Con Herramientas Online Fácil De Uso</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/discover-advanced-dj-features-with-pcdjs-dex-3-sampler-free-trial-video-showcase/"><u>Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/full-review-and-tutorial-s-video-show-app-for-2024/"><u>Full Review & Tutorial 'S Video Show App for 2024</u></a></li>
-<li><a href="https://fox-useful.techidaily.com/hard250gb500gbssd/"><u>Hardディスク250GBへのクランプ：廉価な無料ソフトで500GBSSDから移行する</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-comprehensive-analysis-of-android-based-lightroom-software/"><u>In 2024, Comprehensive Analysis of Android-Based Lightroom Software</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-poco-x5-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Poco X5 to New Android? | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-installing-your-graphics-cards-latest-drivers-tips-from-yl-computing/"><u>Step-by-Step Guide: Installing Your Graphics Card's Latest Drivers - Tips From YL Computing</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/tailoring-system-aesthetics-the-ultimate-tutorial-for-windows-control-panel-tweaks/"><u>Tailoring System Aesthetics: The Ultimate Tutorial for Windows Control Panel Tweaks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-guide-for-broken-graphics-cards-by-professionals-at-yl-software/"><u>Troubleshooting Guide for Broken Graphics Cards by Professionals at YL Software</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unexpected-screen-blackouts-understanding-your-computer-display-issues-expert-insights-from-yl-computing/"><u>Unexpected Screen Blackouts: Understanding Your Computer Display Issues - Expert Insights From YL Computing</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-cost-effective-clouds-for-the-budget-conscious-for-2024/"><u>Unlocking Cost-Effective Clouds for the Budget-Conscious for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-guide-to-efficient-webp-jpeg-conversion/"><u>[New] Guide to Efficient WebP JPEG Conversion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-in-2024-marketing-mastery-discerning-real-engagement-from-skewed-statistics/"><u>[New] In 2024, Marketing Mastery Discerning Real Engagement From Skewed Statistics</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-ranked-best-ipad-speech-to-text-programs-3/"><u>[New] Ranked Best iPad Speech-to-Text Programs #3</u></a></li>
+<li><a href="https://media-tips.techidaily.com/best-top-3-methods-for-converting-midi-files-into-premium-mp3-audio/"><u>Best Top 3 Methods for Converting MIDI Files Into Premium MP3 Audio</u></a></li>
+<li><a href="https://extra-information.techidaily.com/choosing-between-podcast-and-youtube-for-content-consumption-for-2024/"><u>Choosing Between Podcast and YouTube for Content Consumption for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/discovering-new-gameplay-modes-on-ps5/"><u>Discovering New Gameplay Modes on PS5</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/effective-strategies-for-diagnosing-and-fixing-windows-memory-problems-insights-from-yl-computing/"><u>Effective Strategies for Diagnosing & Fixing Windows Memory Problems: Insights From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/explorer-thumbnail-cache-clear-out-guide-free-up-disk-space-with-ease-tips-from-yl-computing/"><u>Explorer Thumbnail Cache Clear-Out Guide: Free Up Disk Space with Ease - Tips From YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-delete-gmail-account-withwithout-password-on-htc-u23-by-drfone-android/"><u>In 2024, Delete Gmail Account With/Without Password On HTC U23</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-rendering-reawakening-amds-radeon/"><u>In 2024, Rendering Reawakening AMD's Radeon</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/master-moving-your-data-file-and-folder-management-tips-for-windows-users-at-yl-computing/"><u>Master Moving Your Data: File & Folder Management Tips for Windows Users at YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/reviving-lost-images-a-step-by-step-guide-to-restoring-permanently-deleted-photos-on-windows-10-tech-tips-by-yl/"><u>Reviving Lost Images: A Step-by-Step Guide to Restoring Permanently Deleted Photos on Windows 10 - Tech Tips by YL</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/reviving-your-non-functional-gpu-expert-troubleshooting-tips-tech-resolve/"><u>Reviving Your Non-Functional GPU: Expert Troubleshooting Tips - Tech Resolve</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/solving-common-issues-why-your-printer-isnt-working-correctly-insights-from-yl-computing/"><u>Solving Common Issues: Why Your Printer Isn't Working Correctly - Insights From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-guide-restoring-your-windows-10-registry-settings-insights-from-yl-computing/"><u>Step-by-Step Guide: Restoring Your Windows 10 Registry Settings - Insights From YL Computing</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-sky-battle-drone-racing-fundamentals-and-top-5-fpv-titans/"><u>The Ultimate Sky Battle Drone Racing Fundamentals & Top 5 FPV Titans</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/troubleshooting-unresponsive-systems-handling-hardware-failures-effectively-guidelines-by-yl-computing/"><u>Troubleshooting Unresponsive Systems: Handling Hardware Failures Effectively - Guidelines by YL Computing</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-the-impact-of-the-european-unions-ai-legislation-on-advanced-language-models-like-chatgpt/"><u>Unveiling the Impact of the European Union's AI Legislation on Advanced Language Models Like ChatGPT</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-softwares-guide-to-accurately-detecting-cpu-issues-best-practices-and-techniques/"><u>YL Software's Guide to Accurately Detecting CPU Issues: Best Practices & Techniques</u></a></li>
 </ul></div>
 

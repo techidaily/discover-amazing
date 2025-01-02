@@ -1,7 +1,7 @@
 ---
 title: Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase
-date: 2024-12-28T18:51:41.237Z
-updated: 2024-12-29T22:15:53.673Z
+date: 2024-12-25T16:40:52.940Z
+updated: 2025-01-01T17:25:32.704Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,21 +46,19 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-directly-stream-webcam-feed-with-vlc-software/"><u>[New] In 2024, Directly Stream Webcam Feed with VLC Software</u></a></li>
-<li><a href="https://win11.techidaily.com/beginning-your-art-with-ms-paint-windows-11-way/"><u>Beginning Your Art with MS Paint - Windows 11 Way</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/boost-your-computer-efficiency-adjust-power-settings-with-guidance-from-yl-software-experts/"><u>Boost Your Computer Efficiency: Adjust Power Settings with Guidance From YL Software Experts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ensuring-privacy-with-windows-11-expert-tips-from-yl-softwares-latest-article/"><u>Ensuring Privacy with Windows 11: Expert Tips From YL Software's Latest Article</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-fake-snapchat-location-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fake Snapchat Location on Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/mastering-data-recovery-a-step-by-step-guide-to-windows-1011-file-backups-and-system-restores/"><u>Mastering Data Recovery: A Step-by-Step Guide to Windows 10/11 File Backups and System Restores</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/mastering-memory-management-in-your-programs-with-expert-tips-from-yl-software-experts/"><u>Mastering Memory Management in Your Programs with Expert Tips From YL Software Experts</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-revolutionize-your-videos-top-3d-animation-makers-revealed/"><u>New Revolutionize Your Videos Top 3D Animation Makers Revealed</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/ram-wear-and-tear-detection-timely-upgrades-explained-by-yl-software-specialists/"><u>RAM Wear and Tear Detection: Timely Upgrades Explained by YL Software Specialists</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resolving-scanner-and-computer-connection-issues-a-comprehensive-guide-expert-advice-from-yl-computing/"><u>Resolving Scanner & Computer Connection Issues: A Comprehensive Guide - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/revive-the-experience-essential-tips-for-lost-iphone-x-users/"><u>Revive the Experience Essential Tips for Lost iPhone X Users</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionize-your-network-with-netgears-powerful-nighthawk-x10-ad7200-a-detailed-performance-review/"><u>Revolutionize Your Network With Netgear's Powerful Nighthawk X10 (AD7200) - A Detailed Performance Review!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-and-repairing-windows-device-drivers-with-guidance-by-yl-software-experts/"><u>Troubleshooting and Repairing Windows Device Drivers with Guidance by YL Software Experts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unpacking-the-features-of-netgear-c370n-more-than-just-a-cable-modem/"><u>Unpacking the Features of Netgear C370n: More than Just a Cable Modem</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/upgrade-from-2k-to-4k-top-tools-and-techniques-for-high-quality-conversion-on-pc-and-mac/"><u>Upgrade From 2K to 4K: Top Tools and Techniques for High-Quality Conversion on PC & Mac</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-computings-step-by-step-instructions-for-enabling-family-safety-settings-in-the-control-panel/"><u>YL Computing's Step-by-Step Instructions for Enabling Family Safety Settings in the Control Panel</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-mastering-instagram-utilizing-search-to-expand-your-filters/"><u>[New] In 2024, Mastering Instagram Utilizing Search to Expand Your Filters</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-tune-tastic-transfers-find-your-favorite-youtube-songs-with-top-6-free-android-apps/"><u>2024 Approved Tune-Tastic Transfers Find Your Favorite Youtube Songs with Top 6 Free Android Apps</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-exclusive-to-inclusive-the-journey-of-gpt-4-in-bridging-ai-accessibility-gaps/"><u>From Exclusive to Inclusive: The Journey of GPT-4 in Bridging AI Accessibility Gaps</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/huge-savings-alert-secure-your-easter-deals-with-65-off-plus-exclusive-code-based-discounts/"><u>Huge Savings Alert: Secure Your Easter Deals with 65% OFF + Exclusive Code-Based Discounts!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-poco-x6-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Poco X6? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-iphone-14-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On iPhone 14 in the Best Ways</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/managing-user-permissions-controlling-access-to-programs-and-files-via-control-panel-expert-tips-from-yl-computing/"><u>Managing User Permissions: Controlling Access to Programs & Files via Control Panel - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/reassign-how-files-are-opened-on-your-device-a-step-by-step-guide-with-yl-solutions/"><u>Reassign How Files Are Opened on Your Device - A Step-by-Step Guide with YL Solutions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/resolving-driver-software-issues-expert-tips-from-yl-computing/"><u>Resolving Driver Software Issues: Expert Tips From YL Computing</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-gaming-pcs-of-2023-expert-reviews-and-buying-guide-yl-tech-insights/"><u>Top Gaming PCs of 2023: Expert Reviews and Buying Guide - YL Tech Insights</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/ultimate-guide-how-to-seamlessly-delete-text-from-pictures-on-any-device-as-of-2023/"><u>Ultimate Guide: How to Seamlessly Delete Text From Pictures on Any Device as of 2023</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/understanding-system-impact-how-a-malfunctioning-video-card-affects-overall-computer-health-advice-by-yl-software-professionals/"><u>Understanding System Impact: How a Malfunctioning Video Card Affects Overall Computer Health – Advice by YL Software Professionals</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-tecno-pova-5-pro-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Tecno Pova 5 Pro Device</u></a></li>
 </ul></div>
 
