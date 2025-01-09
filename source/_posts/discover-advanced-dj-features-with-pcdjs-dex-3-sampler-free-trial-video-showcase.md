@@ -1,7 +1,7 @@
 ---
 title: Discover Advanced DJ Features with PCDJ's DEX 3 Sampler - Free Trial Video Showcase
-date: 2024-12-27T19:51:42.266Z
-updated: 2025-01-01T18:28:07.730Z
+date: 2025-01-05T10:20:33.671Z
+updated: 2025-01-09T04:26:19.908Z
 tags:
   - product
 categories:
@@ -24,7 +24,7 @@ You still have 8 trigger pads that allow you to load up sample clips so you can 
 ##### VIDEO DEMONSTRATION OF HOW TO LOAD SAMPLES INTO SAMPLER AND PLAY THEM IN PCDJ DEX 3
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -46,18 +46,21 @@ https://i1.wp.com/pcdj.com/wp-content/uploads/2014/09/dex3sampleplayercoverimage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-demystifying-the-math-of-youtube-ratio-perfection/"><u>[New] In 2024, Demystifying the Math of YouTube Ratio Perfection</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-elite-race-games-collection-guide/"><u>[Updated] Elite Race Games Collection Guide</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-summit-elite-studio-25-test/"><u>[Updated] Summit Elite Studio 25 Test</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/exploring-options-the-top-platforms-and-applications-for-monitoring-your-crypto-portfolio-insights-by-yl-computing/"><u>Exploring Options: The Top Platforms and Applications for Monitoring Your Crypto Portfolio - Insights by YL Computing</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/harness-online-tools-for-free-fb-video-conversion-to-1080p720p-mp4/"><u>Harness Online Tools for Free FB Video Conversion to 1080P/720p MP4</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/is-windows-defender-pre-installed-in-all-versions-of-microsofts-os-an-insight-by-yl-computing/"><u>Is Windows Defender Pre-Installed in All Versions of Microsoft's OS? An Insight by YL Computing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/m1-edge-revolutionary-editors-uninterrupted-creativity-for-2024/"><u>M1 Edge Revolutionary Editors, Uninterrupted Creativity for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/navigate-through-steams-e84-complications/"><u>Navigate Through Steam's E84 Complications</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/navigating-the-digital-gold-rush-strategic-approaches-to-bitcoin-and-altcoin-investments-with-yl-software-guidance/"><u>Navigating the Digital Gold Rush: Strategic Approaches to Bitcoin and Altcoin Investments with YL Software Guidance</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/protect-your-data-on-windows-11-with-easy-backup-strategies-expert-tips-from-yl-software-team/"><u>Protect Your Data on Windows 11 with Easy Backup Strategies – Expert Tips From YL Software Team</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/securing-direct3d-integration-end-of-gpu-rendering-issues/"><u>Securing Direct3D Integration: End of GPU Rendering Issues</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/setting-up-twitchs-two-factor-authentication-a-comprehensive-guide/"><u>Setting Up Twitch's Two-Factor Authentication: A Comprehensive Guide</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-softwares-easy-method-for-reorganizing-your-documents-in-windows-by-shifting-folders-quick-and-simple-solutions/"><u>YL Software's Easy Method for Reorganizing Your Documents in Windows by Shifting Folders - Quick & Simple Solutions</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-essential-tactics-for-mastering-mobizen-mobile-screen-recording/"><u>[New] 2024 Approved Essential Tactics for Mastering Mobizen Mobile Screen Recording</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-seamless-integration-of-switch-pro-into-steam-games/"><u>[Updated] 2024 Approved Seamless Integration of Switch Pro Into Steam Games</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-enhancing-facebooks-reflective-feature-editing-techniques-for-2024/"><u>[Updated] Enhancing Facebook's Reflective Feature Editing Techniques for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/44cm5asx44gp44gx44gf44ov44o844oj5pah5pu444gu5zue5b6p5rov77ya5lia5rwb44gu44og44kv44ol44od44kv44gn5pyq5p2l5rc45yqr5lplusd6k2377yb44cn/"><u>「失くしたワード文書の回復法：一流のテクニックで未来永劫保護！」</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/5-star-titles-in-hydro-dynamics-gaming-world-for-2024/"><u>5-Star Titles in Hydro Dynamics Gaming World for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/a-future-proof-selection-of-2024s-most-advanced-and-efficient-home-theater-pcs/"><u>A Future-Proof Selection of 2024'S Most Advanced and Efficient Home Theater PCs</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/comment-deplacer-les-fichiers-du-programme-vers-un-nouveau-disque-dur-sous-windows/"><u>Comment Déplacer Les Fichiers Du Programme Vers Un Nouveau Disque Dur Sous Windows</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/complete-step-by-step-wsl-removal-procedure/"><u>Complete Step-by-Step WSL Removal Procedure</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/earn-on-the-go-snapchats-money-tips-for-2024/"><u>Earn on the Go Snapchat's Money Tips for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/expressive-leadership-examination-refined-no-8-for-2024/"><u>Expressive Leadership Examination - Refined No. 8 for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728479635236-google/"><u>Google雲端硬碟搜索方法：高效地恢復意外刪除或考量是否永久消失的文件</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/professional-disaster-preparedness-with-windows-data-protection-aomei-technician-plus-for-corporate-resilience/"><u>Professional Disaster Preparedness with Windows Data Protection: AOMEI Technician Plus for Corporate Resilience</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-accessing-and-recovering-data-in-windowsold-on-your-pc/"><u>Step-by-Step Tutorial: Accessing and Recovering Data in 'Windows.old' On Your PC</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-hidden-depths-of-snapchats-my-ai-uncovering-the-top-6-surprising-benefits/"><u>The Hidden Depths of Snapchat's My AI: Uncovering the Top 6 Surprising Benefits</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-strategies-fixing-persistent-windows-11-system-crashes-and-stutters/"><u>Top Strategies: Fixing Persistent Windows 11 System Crashes & Stutters</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/windows-10-datenwiederherstellung-nach-einem-pc-ausfall-schnellanleitung/"><u>Windows 10 Datenwiederherstellung Nach Einem PC-Ausfall - Schnellanleitung</u></a></li>
 </ul></div>
 

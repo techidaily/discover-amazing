@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2024-12-31T21:28:20.579Z
-updated: 2025-01-01T17:45:01.482Z
+date: 2025-01-07T01:54:04.708Z
+updated: 2025-01-08T19:29:45.958Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,19 +59,19 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-ai-driven-nomenclature-best-10-name-generators-online-for-2024/"><u>[New] AI-Driven Nomenclature Best 10 Name Generators Online for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-dell-p2715q-4k-monitor-review/"><u>[Updated] 2024 Approved Dell P2715Q 4K Monitor Review</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/dvdwindows10112/"><u>最新DVD編集技術ガイド：Windows10/11用の上位2つの編集プログラムを見てみよう</u></a></li>
-<li><a href="https://win-dash.techidaily.com/access-free-radeon-graphics-driver-software-for-amd-under-windows-8/"><u>Access Free Radeon Graphics Driver Software for AMD Under Windows 8</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/dvdiso/"><u>DVDディスクからISO画像への変換手順</u></a></li>
-<li><a href="https://games-able.techidaily.com/effortless-game-streaming-on-your-iosandroid-device/"><u>Effortless Game Streaming on Your iOS/Android Device</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/expert-strategies-for-quick-and-easy-mov-file-transformation-into-mp3-format-on-mac-devices/"><u>Expert Strategies for Quick and Easy MOV File Transformation Into MP3 Format on Mac Devices</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-close-up-views-in-roblox-games/"><u>In 2024, Mastering Close-Up Views in Roblox Games</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/powerdirector-pro-detailed-reviews-and-step-by-step-guides-for-2024/"><u>PowerDirector Pro Detailed Reviews and Step-by-Step Guides for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/speed-up-conversions-harness-the-power-of-winxvideo-ais-gpu-acceleration-for-videoaudio-editing/"><u>Speed Up Conversions: Harness the Power of WinxVideo AI's GPU Acceleration for Video/Audio Editing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/t-mobile-metro-unrestricted-network-access-and-global-roaming-guidelines/"><u>T-Mobile Metro Unrestricted Network Access & Global Roaming Guidelines</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/tecnologia-inteligente-al-alcance-licencia-completa-de-winxvideo-ai-y-sus-nueva-actualizacion-sin-costo/"><u>Tecnología Inteligente Al Alcance: Licencia Completa De Winxvideo AI Y Sus Nueva Actualización Sin Costo</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/top-free-tools-for-dvd-to-mp3-conversion-without-compromising-quality/"><u>Top Free Tools for DVD-to-MP3 Conversion without Compromising Quality</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-create-unforgettable-dvds-the-ultimate-movie-making-software-guide/"><u>Updated 2024 Approved Create Unforgettable DVDs The Ultimate Movie Making Software Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-boost-your-fb-ads-strategy-get-free-video-making-kit/"><u>[Updated] Boost Your FB Ads Strategy Get Free Video-Making Kit</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-on-iphone-15-pro-max-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons On iPhone 15 Pro Max? Find the Best Solution Here</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/automatiser-les-sauvegardes-incrementielles-de-votre-disque-dur-externe/"><u>Automatiser Les Sauvegardes Incrémentielles De Votre Disque Dur Externe</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/dive-into-the-future-of-branding-with-these-10-igtv-ideas/"><u>Dive Into the Future of Branding with These 10 IGTV Ideas</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/expert-tips-to-ensure-your-surfaces-software-stays-current/"><u>Expert Tips to Ensure Your Surface's Software Stays Current</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/guide-comment-retrouver-les-donnees-supprimees-dun-disque-dur-externe/"><u>Guide : Comment Retrouver Les Données Supprimées D'un Disque Dur Externe ?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/harmonizing-volume-dial-down-with-fl-studio-features/"><u>Harmonizing Volume Dial-Down with FL Studio Features</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oppo-reno-11-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo Reno 11 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-ranking-premium-free-excellence-the-finest-free-lut-selections/"><u>In 2024, Ranking Premium-Free Excellence The Finest Free LUT Selections</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/les-5-facons-efficaces-de-resoudre-les-problemes-copier-coller-sous-windows-11/"><u>Les 5 Façons Efficaces De Résoudre Les Problèmes Copier-Coller Sous Windows 11</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/les-deux-facons-defendantes-de-sassurer-la-securite-de-votre-windows-10-avec-un-disque-nas-qnap/"><u>Les Deux Façons Défendantes De S'Assurer La Sécurité De Votre Windows 10 Avec Un Disque NAS QNAP</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/overcoming-low-disk-space-errors-when-performing-windows-server-backups/"><u>Overcoming Low Disk Space Errors When Performing Windows Server Backups</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-xiaomi-redmi-note-12-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Xiaomi Redmi Note 12 5G Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/visualizing-vibes-with-dex-3-in-pcdj-top-shaders-reviewed/"><u>Visualizing Vibes with DEX 3 in PCDJ - Top Shaders Reviewed!</u></a></li>
 </ul></div>
 
