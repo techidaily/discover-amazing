@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX3 DJ: A Comprehensive Guide on Adjusting & Editing Font Sizes in Pioneer CDJ"
-date: 2025-01-08T00:50:34.191Z
-updated: 2025-01-09T01:10:58.628Z
+date: 2025-01-10T08:45:05.392Z
+updated: 2025-01-14T21:38:32.263Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ We’ll still attempt to bring you other helpful Digital DJ and karaoke tips dur
 ##### Make sure to check back early next week for the official PCDJ DEX 3 announcement!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,22 +50,19 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/08/learncoverimage.jpg?fit=53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-learn-iphones-burst-shot-magic-for-2024/"><u>[New] Learn iPhone's Burst Shot Magic for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-aperture-alchemy-crafting-the-top-10-lens-list/"><u>[Updated] Aperture Alchemy Crafting the Top 10 Lens List</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-techniques-to-procure-free-visual-frame-videos-for-2024/"><u>[Updated] Techniques to Procure Free Visual Frame Videos for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/bypassing-the-bitlocker-security-hurdle-with-these-2-strategies-in-windows-11/"><u>Bypassing the BitLocker Security Hurdle with These 2 Strategies in Windows 11</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/digital-filmmakers-lifeline-mastering-avi-conversions-into-dynamic-gifs-with-filmora-windowsmacos/"><u>Digital Filmmakers' Lifeline Mastering AVI Conversions Into Dynamic GIFs with Filmora (Windows/macOS)</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/error-the-requested-webpage-doesnt-exist/"><u>Error: The Requested Webpage Doesn't Exist</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/herstellen-van-sneltoegang-in-windows-10-file-explorer-verloren-gegeven-verbindungen/"><u>Herstellen Van Sneltoegang in Windows 10-File Explorer Verloren Gegeven Verbindungen</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-cutting-edge-collage-companions-android-and-iphones-best/"><u>In 2024, Cutting-Edge Collage Companions Android & iPhone's Best</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-honoring-artistry-essential-stop-motion-movies-top-15/"><u>In 2024, Honoring Artistry Essential Stop-Motion Movies (Top 15)</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-infinix-note-30-vip-racing-edition-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Infinix Note 30 VIP Racing Edition | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-what-does-jailbreaking-apple-iphone-14-i-do-get-answers-here-drfone-by-drfone-ios/"><u>In 2024, What Does Jailbreaking Apple iPhone 14 i Do? Get Answers here | Dr.fone</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/new-how-to-add-transitions-in-adobe-premiere-pro/"><u>New How to Add Transitions in Adobe Premiere Pro</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/pc-based-guide-securely-backing-up-your-iphone-messages-without-using-itunes/"><u>PC-Based Guide: Securely Backing Up Your iPhone Messages Without Using iTunes</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/troubleshooting-a-non-booting-disc-clone-and-steps-to-enable-hard-disk-booting/"><u>Troubleshooting a Non-Booting Disc Clone & Steps to Enable Hard Disk Booting</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/wdexternal-hdd7/"><u>WD型EXTERNAL HDDが旧式に見えてしまう解決策：7手法</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-10mbr-hdd/"><u>Windows 10におけるMBR HDDの削除手順：３つのアプローチ</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/windows-surfacesd/"><u>Windows Surface：SDカードが見えない場合、解決法の一歩先へ - 基本的なガイド</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-optimal-technique-integrating-gopro-videos-into-compreited-cinematic-universe/"><u>[New] Optimal Technique Integrating GoPro Videos Into Compreited Cinematic Universe</u></a></li>
+<li><a href="https://win-great.techidaily.com/1-steps-to-restore-accidentally-removed-gifs-on-your-computer/"><u>1. Steps to Restore Accidentally Removed GIFs on Your Computer</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweets-unfolded-yearly-guide-to-social-reactions/"><u>2024 Approved Tweets Unfolded Yearly Guide to Social Reactions</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/iuabtoawsoejioobruodleocoeocpoodqplusobruobvplusockumbuoaknueahoobqplusocsplusodloodvdrjg5xjg6rjg7zoo73lk4hjgaflrabjgbbmlrnms5ui/"><u>更新版のファイルのみを選択的にコピー:フリー製品で学ぶ方法</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-lenovo-ideapad-laptop-analysis-unveiling-the-quality-and-design/"><u>Comprehensive Lenovo IdeaPad Laptop Analysis: Unveiling the Quality and Design</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fixing-error-code-1-ensuring-proper-configuration-of-your-device/"><u>Fixing Error Code 1: Ensuring Proper Configuration of Your Device</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-system-issues-of-apple-iphone-12-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of Apple iPhone 12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-easy-steps-to-record-your-dell-laptops-display/"><u>In 2024, Easy Steps to Record Your Dell Laptop's Display</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/restore-deletion-proof-files-from-windows-781011-systems-effectively/"><u>Restore Deletion-Proof Files From Windows 7/8/10/11 Systems Effectively</u></a></li>
+<li><a href="https://extra-support.techidaily.com/secure-your-travel-documentation-instant-free-passport-image-generation-tool-for-2024/"><u>Secure Your Travel Documentation Instant FREE Passport Image Generation Tool for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/transferencia-eficaz-del-estado-de-tu-pc-con-restauracion-de-imagen-al-ssd-todo-lo-que-necesitas-saber/"><u>Transferencia Eficaz Del Estado De Tu PC Con Restauración De Imagen Al SSD: Todo Lo Que Necesitas Saber</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/verstandliche-anleitung-zum-setzen-eines-wiederherstellungspassworts/"><u>Verständliche Anleitung Zum Setzen Eines Wiederherstellungspassworts</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1728464695515-windows/"><u>Windowsが正しく読み込まれませんでした</u></a></li>
 </ul></div>
 

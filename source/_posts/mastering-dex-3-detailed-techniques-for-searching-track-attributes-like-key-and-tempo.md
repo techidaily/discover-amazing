@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2025-01-07T01:54:04.708Z
-updated: 2025-01-08T19:29:45.958Z
+date: 2025-01-12T16:31:19.563Z
+updated: 2025-01-14T20:36:21.603Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,19 +59,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-boost-your-fb-ads-strategy-get-free-video-making-kit/"><u>[Updated] Boost Your FB Ads Strategy Get Free Video-Making Kit</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-on-iphone-15-pro-max-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons On iPhone 15 Pro Max? Find the Best Solution Here</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/automatiser-les-sauvegardes-incrementielles-de-votre-disque-dur-externe/"><u>Automatiser Les Sauvegardes Incrémentielles De Votre Disque Dur Externe</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/dive-into-the-future-of-branding-with-these-10-igtv-ideas/"><u>Dive Into the Future of Branding with These 10 IGTV Ideas</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/expert-tips-to-ensure-your-surfaces-software-stays-current/"><u>Expert Tips to Ensure Your Surface's Software Stays Current</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/guide-comment-retrouver-les-donnees-supprimees-dun-disque-dur-externe/"><u>Guide : Comment Retrouver Les Données Supprimées D'un Disque Dur Externe ?</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/harmonizing-volume-dial-down-with-fl-studio-features/"><u>Harmonizing Volume Dial-Down with FL Studio Features</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oppo-reno-11-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Oppo Reno 11 5G in 5 Easy Ways | Dr.fone</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-ranking-premium-free-excellence-the-finest-free-lut-selections/"><u>In 2024, Ranking Premium-Free Excellence The Finest Free LUT Selections</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/les-5-facons-efficaces-de-resoudre-les-problemes-copier-coller-sous-windows-11/"><u>Les 5 Façons Efficaces De Résoudre Les Problèmes Copier-Coller Sous Windows 11</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/les-deux-facons-defendantes-de-sassurer-la-securite-de-votre-windows-10-avec-un-disque-nas-qnap/"><u>Les Deux Façons Défendantes De S'Assurer La Sécurité De Votre Windows 10 Avec Un Disque NAS QNAP</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/overcoming-low-disk-space-errors-when-performing-windows-server-backups/"><u>Overcoming Low Disk Space Errors When Performing Windows Server Backups</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/restore-missing-app-icon-on-xiaomi-redmi-note-12-5g-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Xiaomi Redmi Note 12 5G Step-by-Step Solutions | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/visualizing-vibes-with-dex-3-in-pcdj-top-shaders-reviewed/"><u>Visualizing Vibes with DEX 3 in PCDJ - Top Shaders Reviewed!</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-art-of-visual-storytelling-with-iphone-xs-new-lens/"><u>[New] In 2024, The Art of Visual Storytelling with iPhone X's New Lens</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-video-tools-an-educators-guide-to-classroom-engagement-for-2024/"><u>[New] Video Tools An Educator's Guide to Classroom Engagement for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-real-results-with-ethical-audience-engagement-on-youtube/"><u>[Updated] In 2024, Real Results with Ethical Audience Engagement on Youtube</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/boost-your-computers-speed-essential-tips-for-a-sparkling-pc-system-the-expertise-of-yl-computing/"><u>Boost Your Computer's Speed: Essential Tips for a Sparkling PC System - The Expertise of YL Computing</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oneplus-12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on OnePlus 12 | Dr.fone</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/get-the-beat-explore-newest-karaoke-selections-from-this-week-3-12-21-with-pcdj-subscription-service/"><u>Get the Beat: Explore Newest Karaoke Selections From This Week (3-12-21) with PCDJ Subscription Service!</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-6s-plus-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone 6s Plus for Free? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-innovative-apps-for-mastering-dji-footage-quality/"><u>In 2024, Innovative Apps for Mastering DJi Footage Quality</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/insulating-materials-can-significantly-reduce-heat-loss-from-the-surface-of-curing-concrete/"><u>Insulating Materials Can Significantly Reduce Heat Loss From the Surface of Curing Concrete.</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/maximize-your-hard-drive-efficiency-with-disk-cleanup-tips-from-yl-software-experts/"><u>Maximize Your Hard Drive Efficiency with Disk Cleanup Tips From YL Software Experts</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-device-driver-load-failure-in-win11/"><u>Overcoming Device Driver Load Failure in Win11</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/premier-content-creators-colloquy-for-2024/"><u>Premier Content Creators Colloquy for 2024</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/premium-space-themed-visual-graphics-ultra-hd-photographs-and-backgrounds-from-yl-softwares-cosmic-series/"><u>Premium Space-Themed Visual Graphics: Ultra HD Photographs and Backgrounds From YL Software's Cosmic Series</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-enhancing-your-experience-with-xbox-game-pass-ultimates-cloud-gaming/"><u>Step-by-Step Tutorial: Enhancing Your Experience with Xbox Game Pass Ultimate's Cloud Gaming</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/stop-automatic-updates-on-your-windows-11-pc-with-these-easy-tricks/"><u>Stop Automatic Updates on Your Windows 11 PC with These Easy Tricks</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/uyl-computing/"><u>U兄千万年计划：YL Computing的投资哲学及其原创专栏</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/unleash-the-power-of-iphone-n-14-visuals-with-yl-computings-exclusive-image-library/"><u>Unleash the Power of iPhone N 14 Visuals with YL Computing's Exclusive Image Library!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/verify-your-rams-health-essential-tips-and-tools-yl-computing-expert-guide/"><u>Verify Your RAM's Health: Essential Tips and Tools - YL Computing Expert Guide</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/yl-software-guide-how-to-identify-and-eliminate-superfluous-applications-on-your-device/"><u>YL Software Guide: How to Identify & Eliminate Superfluous Applications on Your Device</u></a></li>
 </ul></div>
 
