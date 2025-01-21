@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX3 DJ: A Comprehensive Guide on Adjusting & Editing Font Sizes in Pioneer CDJ"
-date: 2025-01-10T08:45:05.392Z
-updated: 2025-01-14T21:38:32.263Z
+date: 2025-01-19T17:41:03.222Z
+updated: 2025-01-21T13:21:39.356Z
 tags:
   - product
 categories:
@@ -28,7 +28,7 @@ We’ll still attempt to bring you other helpful Digital DJ and karaoke tips dur
 ##### Make sure to check back early next week for the official PCDJ DEX 3 announcement!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -50,19 +50,19 @@ https://i2.wp.com/pcdj.com/wp-content/uploads/2014/08/learncoverimage.jpg?fit=53
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-approaches.techidaily.com/new-optimal-technique-integrating-gopro-videos-into-compreited-cinematic-universe/"><u>[New] Optimal Technique Integrating GoPro Videos Into Compreited Cinematic Universe</u></a></li>
-<li><a href="https://win-great.techidaily.com/1-steps-to-restore-accidentally-removed-gifs-on-your-computer/"><u>1. Steps to Restore Accidentally Removed GIFs on Your Computer</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/2024-approved-tweets-unfolded-yearly-guide-to-social-reactions/"><u>2024 Approved Tweets Unfolded Yearly Guide to Social Reactions</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/iuabtoawsoejioobruodleocoeocpoodqplusobruobvplusockumbuoaknueahoobqplusocsplusodloodvdrjg5xjg6rjg7zoo73lk4hjgaflrabjgbbmlrnms5ui/"><u>更新版のファイルのみを選択的にコピー:フリー製品で学ぶ方法</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-lenovo-ideapad-laptop-analysis-unveiling-the-quality-and-design/"><u>Comprehensive Lenovo IdeaPad Laptop Analysis: Unveiling the Quality and Design</u></a></li>
-<li><a href="https://driver-error.techidaily.com/fixing-error-code-1-ensuring-proper-configuration-of-your-device/"><u>Fixing Error Code 1: Ensuring Proper Configuration of Your Device</u></a></li>
-<li><a href="https://techidaily.com/how-to-repair-system-issues-of-apple-iphone-12-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair System Issues of Apple iPhone 12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Apple iPhone 13 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/in-2024-easy-steps-to-record-your-dell-laptops-display/"><u>In 2024, Easy Steps to Record Your Dell Laptop's Display</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/restore-deletion-proof-files-from-windows-781011-systems-effectively/"><u>Restore Deletion-Proof Files From Windows 7/8/10/11 Systems Effectively</u></a></li>
-<li><a href="https://extra-support.techidaily.com/secure-your-travel-documentation-instant-free-passport-image-generation-tool-for-2024/"><u>Secure Your Travel Documentation Instant FREE Passport Image Generation Tool for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/transferencia-eficaz-del-estado-de-tu-pc-con-restauracion-de-imagen-al-ssd-todo-lo-que-necesitas-saber/"><u>Transferencia Eficaz Del Estado De Tu PC Con Restauración De Imagen Al SSD: Todo Lo Que Necesitas Saber</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/verstandliche-anleitung-zum-setzen-eines-wiederherstellungspassworts/"><u>Verständliche Anleitung Zum Setzen Eines Wiederherstellungspassworts</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1728464695515-windows/"><u>Windowsが正しく読み込まれませんでした</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-to-seamlessly-replace-backgrounds-on-instagram-for-2024/"><u>[New] Step-by-Step Guide to Seamlessly Replace Backgrounds on Instagram for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-elevating-your-instagram-video-game-to-go-global/"><u>[Updated] Elevating Your Instagram Video Game to Go Global</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-setting-up-a-sports-channel-from-scratch-mac-style/"><u>[Updated] In 2024, Setting up a Sports Channel From Scratch, Mac-Style</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-mastering-stardew-key-highlights-from-ginger-isle/"><u>2024 Approved Mastering Stardew Key Highlights From Ginger Isle</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/convert-mov-files-to-mp4-for-free-cross-platform-support-for-mac-and-windows-11-users/"><u>Convert MOV Files to MP4 for Free: Cross-Platform Support for Mac and Windows 11 Users</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/copying-dvds-flawlessly-on-your-mac-discover-the-best-four-techniques-for-true-11-replication/"><u>Copying DVDs Flawlessly on Your Mac: Discover the Best Four Techniques for True 1:1 Replication</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/digitize-all-your-dvd-content-for-ios-devices-using-winx-mac-dvd-ripper-effortless-conversion-on-macos-systems/"><u>Digitize All Your DVD Content for iOS Devices Using WinX Mac DVD Ripper - Effortless Conversion On macOS Systems</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/download-the-powerful-hevc-codec-at-no-cost-for-ultra-hd-video-support/"><u>Download the Powerful HEVC Codec at No Cost for Ultra HD Video Support</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-motorola-moto-g13-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Motorola Moto G13 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://win-info.techidaily.com/how-to-set-up-easy-page-printing-functionality-in-flipbooks-with-flipbuilder/"><u>How to Set Up Easy Page Printing Functionality in Flipbooks with FlipBuilder</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-stop-surroundsound-from-shifting-with-your-head-in-airpods-a-step-by-step-guide/"><u>How to Stop SurroundSound From Shifting with Your Head in AirPods: A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/the-ultimate-guide-to-high-performance-gear-by-toms-hardware/"><u>The Ultimate Guide to High-Performance Gear by Tom's Hardware</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/1725285699537-winxvideo-ai-gpu/"><u>Winxvideo AI: 빠른 지속 주기 GPU 제어로 전체 비디오, 오디오 강조</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210761814-9781591798453-your-deepest-intent/"><u>Your Deepest Intent | Free Book</u></a></li>
 </ul></div>
 

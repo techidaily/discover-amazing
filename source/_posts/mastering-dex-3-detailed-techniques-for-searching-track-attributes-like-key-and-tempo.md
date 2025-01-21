@@ -1,7 +1,7 @@
 ---
 title: "Mastering DEX 3: Detailed Techniques for Searching Track Attributes Like Key and Tempo"
-date: 2025-01-12T16:31:19.563Z
-updated: 2025-01-14T20:36:21.603Z
+date: 2025-01-19T20:55:17.581Z
+updated: 2025-01-20T18:42:39.459Z
 tags:
   - product
 categories:
@@ -37,7 +37,7 @@ eg. if you want to search all Dance songs with bpm 128 from the 90’s in key 10
 Using this search method works for regular music, music videos, and karaoke. Launch [DEX 3](https://tools.techidaily.com/pcdj/products/) now and try it yourself!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### _Related_
@@ -59,24 +59,24 @@ https://i0.wp.com/pcdj.com/wp-content/uploads/2022/07/dex3-protip.jpg?fit=1276%2
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-art-of-visual-storytelling-with-iphone-xs-new-lens/"><u>[New] In 2024, The Art of Visual Storytelling with iPhone X's New Lens</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-video-tools-an-educators-guide-to-classroom-engagement-for-2024/"><u>[New] Video Tools An Educator's Guide to Classroom Engagement for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-real-results-with-ethical-audience-engagement-on-youtube/"><u>[Updated] In 2024, Real Results with Ethical Audience Engagement on Youtube</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/boost-your-computers-speed-essential-tips-for-a-sparkling-pc-system-the-expertise-of-yl-computing/"><u>Boost Your Computer's Speed: Essential Tips for a Sparkling PC System - The Expertise of YL Computing</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oneplus-12-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on OnePlus 12 | Dr.fone</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/get-the-beat-explore-newest-karaoke-selections-from-this-week-3-12-21-with-pcdj-subscription-service/"><u>Get the Beat: Explore Newest Karaoke Selections From This Week (3-12-21) with PCDJ Subscription Service!</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-track-a-lost-apple-iphone-6s-plus-for-free-drfone-by-drfone-virtual-ios/"><u>How to Track a Lost Apple iPhone 6s Plus for Free? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/in-2024-innovative-apps-for-mastering-dji-footage-quality/"><u>In 2024, Innovative Apps for Mastering DJi Footage Quality</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/insulating-materials-can-significantly-reduce-heat-loss-from-the-surface-of-curing-concrete/"><u>Insulating Materials Can Significantly Reduce Heat Loss From the Surface of Curing Concrete.</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/maximize-your-hard-drive-efficiency-with-disk-cleanup-tips-from-yl-software-experts/"><u>Maximize Your Hard Drive Efficiency with Disk Cleanup Tips From YL Software Experts</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-device-driver-load-failure-in-win11/"><u>Overcoming Device Driver Load Failure in Win11</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/premier-content-creators-colloquy-for-2024/"><u>Premier Content Creators Colloquy for 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/premium-space-themed-visual-graphics-ultra-hd-photographs-and-backgrounds-from-yl-softwares-cosmic-series/"><u>Premium Space-Themed Visual Graphics: Ultra HD Photographs and Backgrounds From YL Software's Cosmic Series</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-enhancing-your-experience-with-xbox-game-pass-ultimates-cloud-gaming/"><u>Step-by-Step Tutorial: Enhancing Your Experience with Xbox Game Pass Ultimate's Cloud Gaming</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/stop-automatic-updates-on-your-windows-11-pc-with-these-easy-tricks/"><u>Stop Automatic Updates on Your Windows 11 PC with These Easy Tricks</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/uyl-computing/"><u>U兄千万年计划：YL Computing的投资哲学及其原创专栏</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/unleash-the-power-of-iphone-n-14-visuals-with-yl-computings-exclusive-image-library/"><u>Unleash the Power of iPhone N 14 Visuals with YL Computing's Exclusive Image Library!</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/verify-your-rams-health-essential-tips-and-tools-yl-computing-expert-guide/"><u>Verify Your RAM's Health: Essential Tips and Tools - YL Computing Expert Guide</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/yl-software-guide-how-to-identify-and-eliminate-superfluous-applications-on-your-device/"><u>YL Software Guide: How to Identify & Eliminate Superfluous Applications on Your Device</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-crossfade-mastery-in-premiere-editing-tools/"><u>[New] 2024 Approved Crossfade Mastery in Premiere Editing Tools</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-streamlining-video-sequence-assembly-through-blends/"><u>[New] 2024 Approved Streamlining Video Sequence Assembly Through Blends</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-phone-videos-to-channel-fame-an-easy-path-for-new-entrepreneurs/"><u>[Updated] From Phone Videos to Channel Fame An Easy Path for New Entrepreneurs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/achieve-peak-gaming-with-the-newly-released-nvidia-geforce-game-ready-windows-driver-free-access/"><u>Achieve Peak Gaming with the Newly Released NVIDIA GeForce Game-Ready Windows Driver – Free Access!</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/comment-deplacer-les-fichiers-du-programme-vers-un-nouveau-disque-dur-sous-windows/"><u>Comment Déplacer Les Fichiers Du Programme Vers Un Nouveau Disque Dur Sous Windows</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/comment-recuperer-des-fichiers-vcf-perdus-ou-effaces-dun-support-memoire-usb-gratuitement/"><u>Comment Récupérer Des Fichiers VCF Perdus Ou Effacés D'un Support Mémoire USB Gratuitement</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/erfolgreiches-cloning-mit-exzellenten-imagingsoftwarelosungen-unter-windows-server-2016/"><u>Erfolgreiches Cloning Mit Exzellenten Imagingsoftwarelösungen Unter Windows Server 2016</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/expertenrat-fur-die-beheizung-von-systemproblemen-in-windows-server-2008r2-sowie-2012-r2-via-eingabeaufforderungsreparatur/"><u>Expertenrat Für Die Beheizung Von Systemproblemen in Windows Server 2008/R2 Sowie 2012 R2 via Eingabeaufforderungsreparatur</u></a></li>
+<li><a href="https://win-guides.techidaily.com/how-to-design-your-own-interactive-french-flipbook-with-flipbuilder/"><u>How To Design Your Own Interactive French Flipbook with FlipBuilder</u></a></li>
+<li><a href="https://win-hot.techidaily.com/how-to-resolve-gpedit-not-found-errors-in-windows-11-using-these-simple-fixes-3-methods/"><u>How to Resolve 'Gpedit Not Found' Errors in Windows 11 Using These Simple Fixes (3 Methods)</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-honor-90-by-drfone-android-unlock-android-unlock/"><u>How to unlock Honor 90</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Poco C51? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-fast-video-trimming-in-windows-11-apps/"><u>In 2024, Unlock Fast Video Trimming in Windows 11 Apps</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/professional-disaster-preparedness-with-windows-data-protection-aomei-technician-plus-for-corporate-resilience/"><u>Professional Disaster Preparedness with Windows Data Protection: AOMEI Technician Plus for Corporate Resilience</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/schritt-fur-schritt-anleitung-zur-konfiguration-der-aufgabenautomatisierung-und-sicherung-bei-benutzerlogout-in-windows-os/"><u>Schritt-Für-Schritt-Anleitung Zur Konfiguration Der Aufgabenautomatisierung Und Sicherung Bei Benutzerlogout in Windows OS</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/step-by-step-tutorial-accessing-and-recovering-data-in-windowsold-on-your-pc/"><u>Step-by-Step Tutorial: Accessing and Recovering Data in 'Windows.old' On Your PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-ultimate-guide-to-choosing-a-brand-top-8-computing-giants/"><u>The Ultimate Guide to Choosing a Brand: Top 8 Computing Giants</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/top-strategies-fixing-persistent-windows-11-system-crashes-and-stutters/"><u>Top Strategies: Fixing Persistent Windows 11 System Crashes & Stutters</u></a></li>
+<li><a href="https://discover-amazing.techidaily.com/windows-10-datenwiederherstellung-nach-einem-pc-ausfall-schnellanleitung/"><u>Windows 10 Datenwiederherstellung Nach Einem PC-Ausfall - Schnellanleitung</u></a></li>
 </ul></div>
 
